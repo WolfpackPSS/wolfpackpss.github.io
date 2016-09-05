@@ -11,7 +11,7 @@ It was known as The Book Of Secrets.
 
 Machiel had been searching for the text ever since he had learned of its existence.
 
-Written by one of the greatest generals of the late chinese Spring And Autumn Period, the book was said to contain powerful magic. Dangerous spells that could turn fields into mud. Grass into fire. Metal into sludge. Materialize entire armies out of thin air. Swallow enemies whole.
+Written by a great general during the late chinese Spring And Autumn Period, the book was said to contain powerful magic. Dangerous spells that could turn fields into mud. Grass into fire. Metal into sludge. Materialize entire armies out of thin air. Swallow enemies whole.
 
 Only a hundred copies had been made. Written on the cut slats of bamboo, stripped from the shields and spears of defeated enemies. Penned in ink squeezed from the bladders of octopi, cuttlefish and squid.
 
@@ -27,7 +27,8 @@ One copy survived. Written in the general's own hand. Bound together by hair fro
 
 It was the last copy. The Book Of Secrets. Waiting to be unearthed. Thousands upon thousands of years later. Waiting. Just Waiting. Until one day its secrets would be revealed.
 
-The book was cursed.
+The book was cursed. 
+
 
 Machiel scoffed. He did not believe in old wives' tales. 
 
@@ -56,7 +57,7 @@ And so, one by one, the leaders of the S.Q.U.I.D. WarFleet announced the end of 
 
 It was a long procession. All of the alliances were present. Dark Matter Heroes. Victrix Mortalis. Elder Drivers. Clan Zaki. Pillaging Scourge. A multitude of minor alliances. And Wolfpack.
 
-A band started playing on one of the ships and cheers began to erupt among some of the other alliances, but WarWolff growled at them. This was not a celebration.
+A band started playing on one of the ships and scattered cheers began to erupt, but WarWolff growled at them. Commanding silence. This was not a celebration.
 
 It was a time for respect. A recognition of the strong leaders before them. An acknowledgment of the profound ways in which they had shaped the galaxy. Of the wars they had fought. The enemies they had withstood. The heavy burdens they had borne.
 
@@ -64,14 +65,14 @@ It was a respect that could only be acknowledged by silence.
 
 Silent nods. Silent salutes. Powerfully grave. The S.Q.U.I.D. leaders passed by.
 
-- Zulras
-- Stormhunter
-- CORSAIR
-- Myla
-- BeefFizelRoll
-- PuddingTown
-- Overhauled
-- Nightlane
+Zulras
+Stormhunter
+CORSAIR
+Myla
+BeefFizelRoll
+PuddingTown
+Overhauled
+Nightlane
 
 One by one, they flew their mighty warships to Lost Eden. Never to return. Never to fly again. Never to fight as one. A respected enemy. A shared ally. A proud fleet.
 
@@ -90,6 +91,7 @@ It was a breathable patio quite literally on the edge of space. It was the kind 
 
 Machiel disembarked from the ship with two of his trusty Troopers by his side and entered the archives.
 
+
 The interior was enormous. Towering white colonnades stretched from floor to ceiling, with pillars as thick as old growth wood. While beautiful rounded domes of glass arched overhead, providing a full observatory onto the stars.
 
 Machiel ignored the sights while his Troopers looked up in awe. Time was of the essence and he could not afford distraction. He led them into a small recessed alcove in the anterior of the building.
@@ -101,7 +103,7 @@ Clapping his hand over his mouth, Machiel stepped inside.
 
 The bottom of the stairway opened onto a wide cavern. Fluorescent lights, old and oddly placed, littered the sides of the stalactites and walls. Flickering on and off like torches under a breeze.
 
-A wooden bridge stretched before them over a river. As they crossed, they could see strange phantasmal shapes floating through the water underneath them. Phosphorescent. Ghostly. Ethereal.
+A wooden bridge stretched before them over a river. As they crossed, they could see strange phantasmal shapes floating through the water underneath. Phosphorescent. Ghostly. Ethereal.
 
 Curious, one of the Troopers reached an arm over the rail. Almost casual in response, one of the shapes floated closer to the surface. Mesmerizing. Iridescent like gasoline on water. Eager. Longing.
 
@@ -111,17 +113,19 @@ Machiel grabbed his wrist and looked at him sternly, "Do not touch the water."
 
 The Trooper gulped and pulled his hand back to his chest, rubbing his wrist. Looking over the rail, he watched as the ethereal shape floated away. Nonchalant. All things would come with time.
 
+
 After crossing the bridge, they entered a broad chamber with three doors. The Room Of Probability.
 
 Machiel had been forewarned of this room when he learned of the book's location. He would be given two guesses to determine the correct door. On his first guess, one of the other two doors would open to be revealed as the incorrect door.
 
-Then it became a question of which of the remaining two doors would he select for his second and final guess? Stick with his original choice? Or choose the other door?
+Then it became a question of which of the remaining two doors he would select for his second and final guess. Stick with his original choice? Or choose the other door?
 
 Machiel had prepared in advance by studying the writings of an old probability guru by the name of Vos Savant. 
 
-At the start of the test, all of the doors would share an equal probability of 1/3 chance of being the correct door. But according to Vos Savant, after the first guess and one of the doors had been eliminated, then the other door would now have a 2/3 chance of being the correct door. Whereas the original selection would only retain its 1/3 probability.
+At the start of the test, all of the doors would share an equal probability of 1/3 chance of being correct. But according to Vos Savant, after the first guess and one of the doors had been eliminated, then the other door would now have a 2/3 chance of being the correct door. Whereas the original selection would only retain its 1/3 probability.
 
-So it was always best to switch your guess to the other door.
+So it was always in your best odds to switch your guess to the other door.
+
 
 Machiel looked at his Trooper. He had grabbed his right hand. So he hazarded a guess that the right door was not the one that he wanted.
 
@@ -135,11 +139,13 @@ Following Vos Savant's probability logic, Machiel chose the other and now turned
 
 The left door opened onto a passageway.
 
-They followed the passage down a long hall that opened onto a circular room. The room was made of solid concrete. Cold and empty. Except for a stone pedestal that stood in the center.
 
-From a hole in the ceiling, rich light poured down from a blue star on top of the pedestal. Revealing a book. Bathed in pure starlight and opened to a single entry:
+They followed the passage down a long hall that opened on a circular room. The room was made of solid concrete. Cold and empty. Except for a stone pedestal that stood in the center.
 
-> "Know thyself, know thy enemies. A thousand battles, a thousand victories."
+From a hole in the ceiling, rich light poured down from a blue star on top of the pedestal. Revealing a book. Bathed in pure, glittering starlight and opened to a single entry:
+
+> Know thyself, know thy enemies.
+> A thousand battles, a thousand victories.
 
 Finally! The unmarked tomb. The Book Of Secrets. 
 
