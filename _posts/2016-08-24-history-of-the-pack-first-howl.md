@@ -13,7 +13,8 @@ ArchNadeom, Keeper Of Records.<br>Stardate #231.
 
 It was supposed to be an easy target. They picked up the scan from the last starport. A fat merchant vessel heavy with minerals and gas. But that wasn't what was waiting for them when they jumped into the sector.
 
-Out of the nebula, with full guns blazing to greet them, was a class 10 squid mercenary--S4G3 of Federation. It had been a setup.
+Out of the nebula, with full guns blazing to greet them, was a class 10 squid mercenary. S4G3 of Federation. It had been a setup.  
+&nbsp; 
 
 "Enemy guns targetting the second forward reactor. Sir! What are your orders?"
 
@@ -21,13 +22,15 @@ The crew had responded admirably and jumped to their battle-stations. But it did
 
 Our captain, the Evil General, was the first to launch a boarding party against the enemy shield. But as soon as the teleporter opened, he was met with a smoking las-cannon. fritz looked down at the gaping hole in the General's chest.
 
-The General had been a good tactician. Hard, but he had the men's respect. Rest well, you old dog.
+The General had been a good tactician. Hard, but he had the men's respect. Rest well, you old dog.  
+&nbsp; 
 
 "fritz, sir! You are captain now! What are your orders?"
 
 That was Thing 1 talking. The General had picked him and his brother up in a dive bar on one of the outer sectors, slugging it out fist-for-fist with the locals. They were a couple of cyborgs, with whirling gears, robotic arms and mechanized organs.
 
-Problem was, you couldn't tell them apart. So the General had nicknamed them Thing 1 and Thing 2, after some old trashy nursery rhyme. There was a reason he was called Evil.
+Problem was, you couldn't tell them apart. So the General had nicknamed them Thing 1 and Thing 2, after some old trashy nursery rhyme. There was a reason he was called Evil.  
+&nbsp; 
 
 "The shields can't hold! The second forward reactor is taking heavy damage!"
 
@@ -41,7 +44,8 @@ I still think on them fondly. Always proud to meet an omega packmate.
 
 Then, battle-hardened and ready to test our mettle against the outer sectors, we moved up into Wolfpack. Sleek black ships. Dark heavy fur coats. Smoldering black eyes burning with a deeper fire. Grim. Dark. Menacing. Dangerous.
 
-Meeting a fellow Wolfpack is always a heavy affair. Filled with deep respect and powerful oaths of allegiance to the pack. They still give me the shivers. Glad they're on our side.
+Meeting a fellow Wolfpack is always a heavy affair. Filled with deep respect and powerful oaths of allegiance to the pack. They still give me the shivers. Glad they're on our side.  
+&nbsp; 
 
 "The second forward reactor is down. Third mid reactor is under heavy fire!"
 
@@ -49,7 +53,8 @@ fritz looked up from the Evil General's dead corpse. There was a change in him. 
 
 "Thing 1, board the enemy ship and take down their reactor. Oliver, man the guns and concentrate all fire on their shields. Yusi, load the Penetrators and take out those missile rooms. Buy us some time to get our shields back online. Thing 2 protect that third reactor with your life. If we lose that last reactor our ship is dead!
 
-"For the Wolfpack! a-Wooooooooo!!"
+"For the Wolfpack! a-Wooooooooo!!"  
+&nbsp; 
 
 It was the first howl. It was a sound that would echo deep throughout Wolfpack. His packmates heard and took up the call.
 
