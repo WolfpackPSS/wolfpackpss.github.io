@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History of the Pack <br><i>First Days</i>
+title: Pack History #1 <br><i>First Days</i>
 date: 2016-08-22
 tags: english
 category: archivist
