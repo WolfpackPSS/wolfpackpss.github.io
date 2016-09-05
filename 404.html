@@ -1,0 +1,62 @@
+---
+title: Page Not Found
+permalink: /404.html
+---
+<!DOCTYPE html>
+<html lang="en">
+  <head>
+
+    {% include head.html %}
+
+    <style type="text/css">
+a {
+  color: #6699cc;
+  transition: color .3s;
+  text-decoration: none;
+}
+
+a:hover {
+  color: #000;
+}
+
+  #container {
+    margin: 0 auto;
+    max-width: 960px;
+  }
+
+  #tangram {
+    height: 0;
+    width: 40%;
+    padding-top: 38%;
+    position: relative;
+    margin: 0 auto;
+    margin-top: 10%;
+  }
+
+  svg {
+    position: absolute;
+    top: 0;
+    left: 0;
+  }
+
+  #description {
+    margin-top: 10%;
+    text-align: center;
+  }
+    </style>
+  </head>
+  <body>
+    <div id="container">
+      <p><center><h1>404</h1></center></p>
+      <br><br><br>
+      <div valign="middle" align="center">
+        <img src='/assets/img/wolfpack.jpg' width='90%'>
+      </div>
+
+      <div id="description">
+        <p>Ooops, this page doesn't exist. Go <a href="{{ site.url }}">somewhere</a> else? :)</p>
+        <p><a href="/about/">{{ site.title }}</a></p>
+      </div>
+    </div>
+  </body>
+</html>
