@@ -11,11 +11,11 @@ ArchNadeom, Keeper Of Records.<br>Stardate #235.
 
 It smelled of rotten fish. Every great alliance was involved.
 
-Victrix Mortalis
-Clan Zaki
-Pillaging Scourge
-Elder Drivers
-Dark Matter Heroes
+Victrix Mortalis  
+Clan Zaki  
+Pillaging Scourge  
+Elder Drivers  
+Dark Matter Heroes  
 
 The top ace captains had broken their former allegiances and formed together a new alliance, The Sushi Train. Its sole purpose: To topple the mighty S.Q.U.I.D. WarFleet.
 
