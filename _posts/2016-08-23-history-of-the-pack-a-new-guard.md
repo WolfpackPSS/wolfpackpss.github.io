@@ -46,4 +46,4 @@ Betrayal. It was not a word that sat lightly for WarWolff. He had joined with S.
 
 Betrayal. He could see it in his officers' eyes. Too long had they lived under S.Q.U.I.D. rule. Too long had they lived under the shadow of its powerful overreaching arm. He knew what they expected of him.
 
-WarWolff turned to the full moon and raised his fist in the air, _"For the Wolfpack!!"_
+WarWolff turned to the full moon and raised his fist in the air, "For the Wolfpack!!"
