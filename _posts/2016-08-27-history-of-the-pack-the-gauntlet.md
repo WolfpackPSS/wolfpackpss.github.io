@@ -15,18 +15,19 @@ SCVsUnion looked down at his hand.  Or at least, what had once been his hand.  N
 
 He was still getting used to the neural implants that corded their way up his arm and into his brain. It was a hand that did not feel like a hand. Like he had stuck his arm in a garbage disposal and the metal thing that had clamped down had suddenly become his hand.
 
-Between the pain, the phantom sensations of the missing limb, and the unintuitive way in which the robotics responded, it felt alien. Foreign. Unnatural. It was a reminder.
-
+Between the pain, the phantom sensations of the missing limb, and the unintuitive way in which the robotics responded, it felt alien. Foreign. Unnatural. It was a reminder.  
+&nbsp; 
 
 Weeks before they had spotted a foreign ship moving along the edge of one of their borders. SCVsUnion was on patrol. He had clear orders from Lt. Colonel xEEVEEx to engage any ship that trespassed on Wolfpack territory.
 
-> "Sir, we have identified the ship. It's a class 9 pirate. Hypnosia of Elder Drivers."
+"Sir, we have identified the ship. It's a class 9 pirate. Hypnosia of Elder Drivers."
 
 SCVsUnion snorted. Elder Drivers? One of the newer alliances. Slowly growing in power. Carving off larger and larger pieces of the galaxy, and growing more and more hungry every day.
 
 Couple of upstarts getting pretty full of themselves. Now they dared to cut into Wolfpack territory?
 
-> "They're a nobody. Destroy them. Follow standard attack procedures. I'll be in my quarters. Find me when the battle is finished."
+"They're a nobody. Destroy them. Follow standard attack procedures. I'll be in my quarters. Find me when the battle is finished."  
+&nbsp; 
 
 From the moment SCVsUnion stepped off the bridge, everything went wrong.
 
@@ -40,8 +41,8 @@ Hulk. Collins. Monk. Da Qiao. Abu.
 
 All good crewmen. All lost.
 
-SCVsUnion looked down at the metal thing attached to his arm. The Gauntlet. It was a defeat he would not forget.
-
+SCVsUnion looked down at the metal thing attached to his arm. The Gauntlet. It was a defeat he would not forget.  
+&nbsp; 
 
 The Elder Drivers were a build-up of a former alliance. The powerful P.R.C. Fleet. 
 
@@ -51,13 +52,13 @@ As the P.R.C. Fleet fell apart, having suffered heavy losses under incursions fr
 
 Slowly closing their ranks, they were reclaiming what had once belonged to the mighty P.R.C. Fleet.
 
-They were scarred. They were bitter. They were not to be taken lightly.
-
+They were scarred. They were bitter. They were not to be taken lightly.  
+&nbsp; 
 
 It took weeks for SCVsUnion to assemble a new crew, hardier than before, and get another ship ready for battle. This time a class 10 federation. One of the big rigs. He wasn't messing around.
 
-Just as his ship pulled out of dry dock, an enemy ship was already there to greet him. Hypnosia of Elder Drivers. So we meet again. Must have gotten gutsy after his last victory. Opening fire the moment his ship pulled out.
-
+Just as his ship pulled out of dry dock, an enemy ship was already there to greet him. Hypnosia of Elder Drivers. So we meet again. Must have gotten gutsy after his last victory. Opening fire the moment his ship pulled out.  
+&nbsp; 
 
 SCVsUnion flexed the fingers of his gauntlet one by one, then closed them into a fist. He would not underestimate his enemy again.
 
@@ -65,8 +66,8 @@ With the enemy guns pounding on their shields, SCVsUnion stood from his captain'
 
 He did not hurry. He knew his ship. His shields would hold. 
 
-He had prepared a special tactic for just such an attack. He called it, "Defensive Boarding." He knew his enemy well.
-
+He had prepared a special tactic for just such an attack. He called it, "Defensive Boarding." He knew his enemy well.  
+&nbsp; 
 
 The crew were anxious to be standing on ceremony while the ship was under attack. You could hear the barrage of enemy fire chewing away at the shields. The occassional ping as a shot got through to the hull.
 
@@ -82,8 +83,8 @@ Now standing before Oliver in the teleporter, ready to board the enemy ship, SCV
 
 Standing before him as captain, his presence acknowledging his courage, was the most Oliver would accept.
 
-SCVsUnion did not say the orders. Oliver knew what to do.
-
+SCVsUnion did not say the orders. Oliver knew what to do.  
+&nbsp; 
 
 Their assault on the enemy ship began the moment Oliver breached the enemy teleporter. He closed his facemask and switched on his suit's internal recirculating air, dropping a grenade of poison gas in the room.
 
@@ -93,14 +94,14 @@ Their second boarder to the enemy ship, a man the crew nicknamed "The Monkey Kin
 
 Oliver was met in the hanger room by a third boarder in green power armor. Facemask closed with internal air recirculating, and dropped his own grenade of poison gas.
 
-With the key rooms of the enemy ship secured, SCVsUnion leisurely dismantled the rest of the enemy with his ship's weapons.  This was a victory he wanted to savor.
-
+With the key rooms of the enemy ship secured, SCVsUnion leisurely dismantled the rest of the enemy with his ship's weapons.  This was a victory he wanted to savor.  
+&nbsp; 
 
 SCVsUnion was the last to board the enemy ship. The enemy crew had been dispatched and the ship was floating sideways at a weird angle, slowly tilting upwards. Blackened and stripped from the inside out. Little more than a husk of the powerful warship it had once been.
 
 SCVsUnion stepped onto the enemy bridge and placed his gauntlet on the console. 
 
-> "I have redeemed you, my fallen crew. I cannot restore your lives. May I reclaim your honor."
+"I have redeemed you, my fallen crew. I cannot restore your lives. May I reclaim your honor."
 
 It was a sobering victory. 
 
