@@ -29,12 +29,12 @@ Would he live up to the demands expected of him? Would he bring his pack glory? 
 
 WarWolff knew what was ahead. He could see it in his pack's eyes. Knew what they expected of him.
 
-xEEVEEx - _The Flint-Eyed_  
-Machiel - _The Strong_  
-Sumara - _Of The Stout Heart_  
-DeathLord291 - _The Merciless_  
-Seq - _Keeper Of The Way_  
-Hyten - _The Sentinel_  
+_xEEVEEx_ - The Flint-Eyed  
+_Machiel_ - The Strong  
+_Sumara_ - Of The Stout Heart  
+_DeathLord291_ - The Merciless  
+_Seq_ - Keeper Of The Way  
+_Hyten_ - The Sentinel  
 
 All proud officers of the new pack. He would need their strength in the coming battles.
 
