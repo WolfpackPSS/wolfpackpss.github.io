@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pack History &#35;8 <br><i>The Sushi Wars, pt. 3 - The Merciless</i>
+title: Pack History &#35;8 <br><i>The Sushi Wars, pt. 3: The Merciless</i>
 date: 2016-08-31
 tags: english
 category: archivist
