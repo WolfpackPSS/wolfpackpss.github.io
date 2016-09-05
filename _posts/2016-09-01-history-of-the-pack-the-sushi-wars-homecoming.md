@@ -65,9 +65,7 @@ It was a look of knowing. You could see the deep lines around WarWolff's eyes. T
 "Welcome home, xEEVEEx."  
 &nbsp; 
 
-I stepped forward next. 
-
-"You'll be needing this back."
+I stepped forward next, "You'll be needing this back."
 
 I grabbed the edges of xEEVEEx's cloak and pulled them together across his chest, fastening them in place with the pendant of the wolf mouth made of silver. Signifying his resumed leadership over omega pack. I was not gentle.
 
