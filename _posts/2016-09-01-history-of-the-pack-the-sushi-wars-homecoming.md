@@ -90,9 +90,7 @@ It was good that our pack held together so well during the Sushi Wars. It was wh
 We received them with laughter and gracious hugs.  
 &nbsp; 
 
-Deathlord291 rubbed his backside, still smarting from a kick. 
-
-"Dang xEEVEEx! You have one vicious bite. You really caught me with my pants down out there."
+Deathlord291 rubbed his backside, still smarting from a kick, "Dang xEEVEEx! You have one vicious bite. You really caught me with my pants down out there."
 
 "What do you expect? You were in Sushi Train. You should have picked a better toilet."
 
