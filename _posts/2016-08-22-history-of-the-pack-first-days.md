@@ -5,15 +5,13 @@ date: 2016-08-22
 tags: english
 category: archivist
 ---
-Stardate #229
-# Stardate #229
-## Stardate #229
-### Stardate #229
-#### Stardate #229
-##### Stardate #229
-###### Stardate #229
-  
-  
+Stardate #229  
+Stardate #229  
+-------------
+Stardate #229  
+=============
+<br/>
+<br/>
 I ArchNadeom, Keeper Of Records, write of the first days of Wolfpack.
 
 The galaxy was different in those times. Before it was carved up between the alliances. Before the patriarchs sat heavy on the stars like Titans overshadowing the fates. It was a time of Newness.
