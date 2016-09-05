@@ -11,13 +11,15 @@ ArchNadeom, Keeper Of Records.<br>Stardate #230.
 
 It was a time of change.
 
-The Old Drivers alliance had been broken. It was a bloody war. It took the very best of Wolfpack and the very best of S.Q.U.I.D. to band together to overthrow the Old Drivers. You can still see their cracked ships and broken hulls. Scarring the horizon like tombstones of former days.
+The Old Drivers alliance had been broken. It was a bloody war. It took the very best of Wolfpack and the very best of S.Q.U.I.D. to band together to overthrow the Old Drivers. You can still see their cracked ships and broken hulls. Scarring the horizon like tombstones of former days.  
+&nbsp; 
 
 It was a time for change.
 
 One by one, the old guard of the wolfpack, TurdSmoothie, Stodz, Amah, and others, put down their arms and walked into the distance. No songs were sung. There were no clasps of hand or looks backward. No words were spoken. It was not their way.
 
-It was agreed that Caxy would remain. No longer flying beside his pack, but to counsel. To guide. To lend his heroic crew and voice of wisdom in the dark times ahead. His days for glory were past.
+It was agreed that Caxy would remain. No longer flying beside his pack, but to counsel. To guide. To lend his heroic crew and voice of wisdom in the dark times ahead. His days for glory were past.  
+&nbsp; 
 
 It was a time for new leadership.
 
@@ -36,7 +38,8 @@ _DeathLord291_ - The Merciless
 _Seq_ - Keeper Of The Way  
 _Hyten_ - The Sentinel  
 
-All proud officers of the new pack. He would need their strength in the coming battles.
+All proud officers of the new pack. He would need their strength in the coming battles.  
+&nbsp; 
 
 Following the destruction of the Old Drivers, the S.Q.U.I.D. assumed dominance of the galaxy. The Victrix Mortalis soon became their lackeys, with the strange alien Dark Matter Heroes shadowing every of S.Q.U.I.D.'s moves.
 
