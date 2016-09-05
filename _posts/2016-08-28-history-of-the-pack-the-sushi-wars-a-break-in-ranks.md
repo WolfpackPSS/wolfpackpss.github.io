@@ -62,7 +62,7 @@ Only the other officers were wise. Standing aloof. Keeping their silence.
 
 Sumara Of The Stout Heart stepped between us and broke the tension. Placing a hand on both our arms.
 
-"The arguments have been made. Your counsels have been heard. WarWolff is our leader. Only he can decide the future of our pack."
+"The arguments have been made. Your counsels have been heard. WarWolff is our leader. Only he can decide the future of the pack."
 
 xEEVEEx and I stepped back and resumed our places among the circle. Still glowering at each other under our brows. 
 
