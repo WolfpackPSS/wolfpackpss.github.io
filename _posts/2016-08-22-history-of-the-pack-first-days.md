@@ -8,9 +8,7 @@ category: archivist
 Stardate #229
 -------------
 
-Stardate #229
-=============
-
+&nbsp; 
 
 I ArchNadeom, Keeper Of Records, write of the first days of Wolfpack.
 
