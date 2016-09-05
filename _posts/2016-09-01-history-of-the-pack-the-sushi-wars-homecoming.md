@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pack History &#35;9 <br><i>The Sushi Wars, pt. 4: Homecoming</i>
+title: Pack History &#35;9 <br><i>The Sushi Wars, pt. 4&#58; Homecoming</i>
 date: 2016-09-01
 tags: english
 category: archivist
