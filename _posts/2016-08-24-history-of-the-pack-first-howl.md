@@ -5,7 +5,7 @@ date: 2016-08-24
 tags: english
 category: archivist
 ---
-ArchNadeom, Keeper Of Records.<br> Stardate #231.
+ArchNadeom, Keeper Of Records.<br>Stardate #231.
 -------------------------------------------------
 &nbsp; 
 
