@@ -5,7 +5,7 @@ date: 2016-08-22
 tags: english
 category: archivist
 ---
-Stardate #229
+Stardate #229.
 -------------
 &nbsp; 
 

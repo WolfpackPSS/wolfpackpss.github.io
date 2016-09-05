@@ -5,7 +5,7 @@ date: 2016-09-01
 tags: english
 category: archivist
 ---
-Captain ArchNadeom. Stardate #239.
+Capt ArchNadeom. Stardate #239.
 ----------------------------------
 &nbsp; 
 
