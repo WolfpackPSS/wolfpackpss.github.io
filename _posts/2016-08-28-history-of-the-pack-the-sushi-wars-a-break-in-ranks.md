@@ -11,11 +11,11 @@ ArchNadeom, Keeper Of Records.<br>Stardate #235.
 
 It smelled of rotten fish. Every great alliance was involved.
 
-- Victrix Mortalis
-- Clan Zaki
-- Pillaging Scourge
-- Elder Drivers
-- Dark Matter Heroes
+Victrix Mortalis
+Clan Zaki
+Pillaging Scourge
+Elder Drivers
+Dark Matter Heroes
 
 The top ace captains had broken their former allegiances and formed together a new alliance, The Sushi Train. Its sole purpose: To topple the mighty S.Q.U.I.D. WarFleet.
 
@@ -31,8 +31,8 @@ The S.Q.U.I.D. were desperate and losing control of the galaxy. It reached out t
 
 We were one of those former alliances. Wolfpack.
 
-It was all dirty.
-
+It was all dirty.  
+&nbsp; 
 
 Wolfpack officers met in council to determine the future of the pack. It was a grove on Omega, circled by trees, with the moon shining in full through the canopy.
 
@@ -42,31 +42,31 @@ xEEVEEx stepped into the grove. I growled under my breath.
 
 xEEVEEx had cast off his fur cloak, and in its place, was now wearing one of the silk pearlescent mantles belonging to the S.Q.U.I.D. WarFleet.
 
-> "Hello squid," smirked Sumara.
+"Hello squid," smirked Sumara.
 
 xEEVEEx smiled at his old friend. 
-> "The battle for galactic supremacy goes poorly for our allies. The threat of the Sushi Train continues to advance. We joined together before with S.Q.U.I.D. to bring down the Old Drivers. And they have always had our back. They are our friends. Our allies. They call on us now to join their numbers and help fight off this new enemy. I have accepted the call. So long as the war endures, I will stand alongside them and defend our allies, the S.Q.U.I.D. WarFleet."
+"The battle for galactic supremacy goes poorly for our allies. The threat of the Sushi Train continues to advance. We joined together before with S.Q.U.I.D. to bring down the Old Drivers. And they have always had our back. They are our friends. Our allies. They call on us now to join their numbers and help fight off this new enemy. I have accepted the call. So long as the war endures, I will stand alongside them and defend our allies, the S.Q.U.I.D. WarFleet."
 
-> "We are wolves. Not squid," I growled.
+"We are wolves. Not squid," I growled.
 
-> "ArchNadeom, the S.Q.U.I.D. have promoted prosperity throughout the galaxy. Yes at times heavy-handed, but that is to be expected when maintaining an empire. If we do not join with them, then our pack, our lives, our prestige as captains, so far as we know them, may perish. The empire may fall."
+"ArchNadeom, the S.Q.U.I.D. have promoted prosperity throughout the galaxy. Yes at times heavy-handed, but that is to be expected when maintaining an empire. If we do not join with them, then our pack, our lives, our prestige as captains, so far as we know them, may perish. The empire may fall."
 
-> "Let it. We are wolves."
+"Let it. We are wolves."
 
 We growled at each other. xEEVEEx and I locked stares. Black eyes burrowing into each other's skull. It was a battle of wills.
 
 It was not a proud moment. 
 
-Only the other officers were wise. Standing aloof. Keeping their silence.
-
+Only the other officers were wise. Standing aloof. Keeping their silence.  
+&nbsp; 
 
 Sumara Of The Stout Heart stepped between us and broke the tension. Placing a hand on both our arms.
 
-> "The arguments have been made. Your counsels have been heard. WarWolff is our leader. Only he can decide the future of our pack."
+"The arguments have been made. Your counsels have been heard. WarWolff is our leader. Only he can decide the future of our pack."
 
 xEEVEEx and I stepped back and resumed our places among the circle. Still glowering at each other under our brows. 
 
-We awaited the command of our leader. WarWolff. 
-
+We awaited the command of our leader. WarWolff.  
+&nbsp; 
 
 Where would we stand in the dark days ahead? Would our packmates remain true? What was the future of Wolfpack?
