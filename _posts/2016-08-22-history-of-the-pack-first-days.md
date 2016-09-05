@@ -6,9 +6,9 @@ tags: english
 category: archivist
 ---
 Stardate #229  
-Stardate #229  
+Stardate #229
 -------------
-Stardate #229  
+Stardate #229
 =============
 <br/>
 <br/>
