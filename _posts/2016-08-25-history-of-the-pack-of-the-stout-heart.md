@@ -5,8 +5,9 @@ date: 2016-08-25
 tags: english
 category: archivist
 ---
-Stardate #232
--------------
+Captain ArchNadeom. Stardate #232.
+----------------------------------
+&nbsp; 
 
 It was a bold move against the S.Q.U.I.D. WarFleet.
 

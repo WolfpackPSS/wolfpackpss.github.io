@@ -5,8 +5,10 @@ date: 2016-09-05
 tags: english
 category: archivist
 ---
-Stardate #242
--------------
+Captain ArchNadeom. Stardate #242.
+----------------------------------
+&nbsp; 
+
 It was known as The Book Of Secrets.
 
 Machiel had been searching for the text ever since he had learned of its existence.

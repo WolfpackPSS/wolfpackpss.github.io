@@ -5,8 +5,9 @@ date: 2016-08-24
 tags: english
 category: archivist
 ---
-Stardate #231
--------------
+Captain ArchNadeom. Stardate #231.
+----------------------------------
+&nbsp; 
 
 > Enemy boarders have taken the first lower reactor. What are your orders, sir?
 

@@ -5,8 +5,10 @@ date: 2016-09-01
 tags: english
 category: archivist
 ---
-Stardate #239
--------------
+Captain ArchNadeom. Stardate #239.
+----------------------------------
+&nbsp; 
+
 The Sushi Wars were over.
 
 The intergalactic struggle for supremacy had ended. Every alliance felt the deep tears in loyalty that the war had cost them. 

@@ -5,8 +5,9 @@ date: 2016-08-23
 tags: english
 category: archivist
 ---
-Stardate #230
--------------
+Captain ArchNadeom. Stardate #230.
+----------------------------------
+&nbsp; 
 
 It was a time of change.
 

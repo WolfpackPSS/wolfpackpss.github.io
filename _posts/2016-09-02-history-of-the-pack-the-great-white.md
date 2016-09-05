@@ -5,8 +5,10 @@ date: 2016-09-02
 tags: english
 category: archivist
 ---
-Stardate #240
--------------
+Captain ArchNadeom. Stardate #240.
+----------------------------------
+&nbsp; 
+
 There is no atmosphere in space.
 
 Objects in light are painfully brighter. Blinding. Objects in shadow become black. A black without variation. Indistinguishable from anything else. Obscure. Invisible.

@@ -5,8 +5,10 @@ date: 2016-08-28
 tags: english
 category: archivist
 ---
-Stardate #235
--------------
+Captain ArchNadeom. Stardate #235.
+----------------------------------
+&nbsp; 
+
 It smelled of rotten fish. Every great alliance was involved.
 
 - Victrix Mortalis

@@ -5,8 +5,10 @@ date: 2016-08-29
 tags: english
 category: archivist
 ---
-Stardate #236
--------------
+Captain ArchNadeom. Stardate #236.
+----------------------------------
+&nbsp; 
+
 xEEVEEx was the first among Wolfpack to join in the altercations between the S.Q.U.I.D. Warfleet and Sushi Train.
 
 It began as wars often do. With excitement. Hunger for glory. A chance to prove your mettle in battle. About picking a side and fighting alongside your new brothers in arms. That the war would be over quickly. Your side stand victorious. And count yourself a proud hero among those who had fought. Bloodied. Glorious. Triumphant.

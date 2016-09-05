@@ -5,8 +5,10 @@ date: 2016-08-31
 tags: english
 category: archivist
 ---
-Stardate #238
--------------
+Captain ArchNadeom. Stardate #238.
+----------------------------------
+&nbsp; 
+
 The Sushi Train was swelling to massive proportions. Bigger and bigger ships were joining the new armada every day. Everyone had a bone to pick with the long oppresive rule of the S.Q.U.I.D. WarFleet.
 
 The Sushi Train had greater numbers. More powerful warships. Greater communication arrays. Drawing more recruits into battle. Bulstering their lines with stronger attack formations. Tightening their ranks.
