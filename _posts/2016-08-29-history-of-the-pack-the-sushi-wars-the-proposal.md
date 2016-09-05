@@ -56,8 +56,7 @@ DeathLord291 stepped forward.
 "I will join the Sushi Train with Sumara. The S.Q.U.I.D. have lorded their dominance over us for too long. I hunger for calamari."  
 &nbsp; 
 
-I couldn't believe what I was hearing. I looked at each of them in turn. DeathLord291? Sumara? WarWolff? These were our officers. Wolfpack! How could they join with another alliance? ANY alliance?  
-&nbsp; 
+I couldn't believe what I was hearing. I looked at each of them in turn. DeathLord291? Sumara? WarWolff? These were our officers. Wolfpack! How could they join with another alliance? ANY alliance?
 
 I was disgusted. I turned on my heel to walk away.  
 &nbsp; 
