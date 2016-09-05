@@ -5,8 +5,8 @@ date: 2016-08-28
 tags: english
 category: archivist
 ---
-Capt ArchNadeom. Stardate #235.
-----------------------------------
+ArchNadeom, Keeper Of Records.<br>Stardate #235.
+------------------------------------------------
 &nbsp; 
 
 It smelled of rotten fish. Every great alliance was involved.

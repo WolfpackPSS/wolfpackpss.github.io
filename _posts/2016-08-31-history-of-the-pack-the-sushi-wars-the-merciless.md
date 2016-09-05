@@ -5,8 +5,8 @@ date: 2016-08-31
 tags: english
 category: archivist
 ---
-Capt ArchNadeom. Stardate #238.
-----------------------------------
+ArchNadeom, Keeper Of Records.<br>Stardate #238.
+------------------------------------------------
 &nbsp; 
 
 The Sushi Train was swelling to massive proportions. Bigger and bigger ships were joining the new armada every day. Everyone had a bone to pick with the long oppresive rule of the S.Q.U.I.D. WarFleet.

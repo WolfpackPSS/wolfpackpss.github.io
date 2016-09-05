@@ -5,8 +5,8 @@ date: 2016-09-02
 tags: english
 category: archivist
 ---
-Capt ArchNadeom. Stardate #240.
-----------------------------------
+ArchNadeom, Keeper Of Records.<br>Stardate #240.
+------------------------------------------------
 &nbsp; 
 
 There is no atmosphere in space.

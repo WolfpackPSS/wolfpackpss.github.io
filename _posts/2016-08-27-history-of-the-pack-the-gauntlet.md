@@ -5,8 +5,8 @@ date: 2016-08-27
 tags: english
 category: archivist
 ---
-Capt ArchNadeom. Stardate #234.
-----------------------------------
+ArchNadeom, Keeper Of Records.<br>Stardate #234.
+------------------------------------------------
 &nbsp; 
 
 It spoke of redemption.

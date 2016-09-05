@@ -5,8 +5,8 @@ date: 2016-08-25
 tags: english
 category: archivist
 ---
-Capt ArchNadeom. Stardate #232.
-----------------------------------
+ArchNadeom, Keeper Of Records.<br>Stardate #232.
+------------------------------------------------
 &nbsp; 
 
 It was a bold move against the S.Q.U.I.D. WarFleet.

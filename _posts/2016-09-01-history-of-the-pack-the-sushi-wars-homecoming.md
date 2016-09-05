@@ -5,8 +5,8 @@ date: 2016-09-01
 tags: english
 category: archivist
 ---
-Capt ArchNadeom. Stardate #239.
-----------------------------------
+ArchNadeom, Keeper Of Records.<br>Stardate #239.
+------------------------------------------------
 &nbsp; 
 
 The Sushi Wars were over.

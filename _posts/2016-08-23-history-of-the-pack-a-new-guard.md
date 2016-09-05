@@ -5,8 +5,8 @@ date: 2016-08-23
 tags: english
 category: archivist
 ---
-Capt ArchNadeom. Stardate #230.
-----------------------------------
+ArchNadeom, Keeper Of Records.<br>Stardate #230.
+------------------------------------------------
 &nbsp; 
 
 It was a time of change.

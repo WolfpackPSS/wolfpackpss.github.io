@@ -5,8 +5,8 @@ date: 2016-08-29
 tags: english
 category: archivist
 ---
-Capt ArchNadeom. Stardate #236.
-----------------------------------
+ArchNadeom, Keeper Of Records.<br>Stardate #236.
+------------------------------------------------
 &nbsp; 
 
 xEEVEEx was the first among Wolfpack to join in the altercations between the S.Q.U.I.D. Warfleet and Sushi Train.

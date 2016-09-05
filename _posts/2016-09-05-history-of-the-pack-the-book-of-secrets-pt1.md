@@ -5,8 +5,8 @@ date: 2016-09-05
 tags: english
 category: archivist
 ---
-Capt ArchNadeom. Stardate #242.
-----------------------------------
+ArchNadeom, Keeper Of Records.<br>Stardate #242.
+------------------------------------------------
 &nbsp; 
 
 It was known as The Book Of Secrets.
