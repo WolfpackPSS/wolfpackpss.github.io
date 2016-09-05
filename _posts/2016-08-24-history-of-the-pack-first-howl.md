@@ -5,10 +5,8 @@ date: 2016-08-24
 tags: english
 category: archivist
 ---
-ArchNadeom, Keeper Of Records  
-------------------------------
-Stardate #231  
----------------
+ArchNadeom, Keeper Of Records.<br> Stardate #231.
+-------------------------------------------------
 &nbsp; 
 
 "Enemy boarders have taken the first lower reactor. What are your orders, sir?"
