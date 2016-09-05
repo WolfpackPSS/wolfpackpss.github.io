@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History of the Pack <br><i>The Great White</i>
+title: Pack History &#35;10 <br><i>The Great White</i>
 date: 2016-09-02
 tags: english
 category: archivist

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History of the Pack <br><i>A New Guard</i>
+title: Pack History &#35;2 <br><i>A New Guard</i>
 date: 2016-08-23
 tags: english
 category: archivist

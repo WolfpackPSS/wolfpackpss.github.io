@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History of the Pack <br><i>Of The Stout Heart</i>
+title: Pack History &#35;4 <br><i>Of The Stout Heart</i>
 date: 2016-08-26
 tags: english
 category: archivist

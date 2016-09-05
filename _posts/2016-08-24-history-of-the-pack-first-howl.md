@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History of the Pack <br><i>First Howl</i>
+title: Pack History &#35;3 <br><i>First Howl</i>
 date: 2016-08-24
 tags: english
 category: archivist

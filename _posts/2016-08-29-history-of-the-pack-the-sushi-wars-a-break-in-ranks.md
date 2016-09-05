@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History of the Pack <br><i>The Sushi Wars - A Break In Ranks</i>
+title: Pack History &#35;6 <br><i>The Sushi Wars - A Break In Ranks</i>
 date: 2016-08-29
 tags: english
 category: archivist

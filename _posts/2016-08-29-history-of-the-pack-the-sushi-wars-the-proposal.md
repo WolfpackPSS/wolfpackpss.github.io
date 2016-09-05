@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History of the Pack <br><i>The Sushi Wars - The Proposal</i>
+title: Pack History &#35;7 <br><i>The Sushi Wars - The Proposal</i>
 date: 2016-08-29
 tags: english
 category: archivist

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History of the Pack <br><i>The Book of Secrets, pt. 1</i>
+title: Pack History &#35;11 <br><i>The Book of Secrets, pt. 1</i>
 date: 2016-09-05
 tags: english
 category: archivist

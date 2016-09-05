@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History of the Pack <br><i>The Gauntlet</i>
+title: Pack History &#35;5 <br><i>The Gauntlet</i>
 date: 2016-08-27
 tags: english
 category: archivist

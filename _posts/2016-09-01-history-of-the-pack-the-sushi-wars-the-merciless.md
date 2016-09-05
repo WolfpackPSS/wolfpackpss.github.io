@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History of the Pack <br><i>The Sushi Wars - The Merciless</i>
+title: Pack History &#35;9 <br><i>The Sushi Wars - The Merciless</i>
 date: 2016-09-01
 tags: english
 category: archivist
