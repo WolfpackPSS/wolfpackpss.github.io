@@ -139,7 +139,7 @@ Only two doors remained to choose from. Right. His first pick. Or the other door
 
 Following Vos Savant's probability logic, Machiel chose the other and now turned the dial to the left.
 
-The left door opened onto a passageway.
+The left door opened onto a passageway.  
 &nbsp; 
 
 They followed the passage down a long hall that opened on a circular room. The room was made of solid concrete. Cold and empty. Except for a stone pedestal that stood in the center.
