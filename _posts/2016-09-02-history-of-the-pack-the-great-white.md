@@ -37,7 +37,7 @@ He called them "sniffers".
 
 When a ship struck these particles, it sent them flying off in opposite directions like a pool ball. All he had to do was trace the line back to its source. 
 
-It was how \_sharky\_ discovered his enemy. Floating along in the deep of space. Where he presumed his ship remained undetected. Ruby-Roo of S.Q.U.I.D. WarFleet.
+It was how \_sharky\_ discovered his enemy. Floating along in deep space. Presuming his ship remained undetected. Ruby-Roo of S.Q.U.I.D. WarFleet.
 
 He would discover his presumption was wrong.  
 &nbsp; 
