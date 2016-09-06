@@ -124,11 +124,14 @@ leoliu86's shields were not built to withstand the massive amounts of energy sur
 
 "Uh, sir? I think you better get down here," it was Trooper calling from Missile Bay 1.
 
-The battle was a momentous victory, but how Missle Bay 1 had behaved was undismissable. Those EMPs would cost him an arm-and-a-leg to replace. Had it been a stronger enemy, their mistargetting could have cost him the battle. Machiel was not pleased.
+The battle was a momentous victory, but how Missle Bay 1 had behaved was undismissable. Those EMPs would cost him an arm-and-a-leg to replace. Had it been a stronger enemy, their mistargetting could have cost him the battle. Machiel was not pleased.  
+&nbsp; 
 
 He walked into Missle Bay 1, "Report."
 
-"Uh, sir. The missile controls would not respond to our commands. The comms went silent and we couldn't open the doors. We, uhm, lost control of the room.... Sir, I hesitate to say this.... It was like it had became possessed."
+"Uh, sir. The missile controls would not respond to our commands. The comms went silent and we couldn't open the doors. We lost control of the room. The missiles just began firing on their own.
+
+"Sir, I hesitate to say this.... It was like it had became possessed."
 
 The Book Of Secrets. Machiel remembered the green fire pouring forth from its pages. Up his arms. Into the console.
 
