@@ -146,7 +146,7 @@ They followed the passage down a long hall that opened on a circular room. The r
 
 From a hole in the ceiling, rich light poured down from a blue star on top of the pedestal. Revealing a book. Bathed in pure, glittering starlight and opened to a single entry:
 
-"Know thyself, know thy enemies.
+"Know thyself, know thy enemies.  
 A thousand battles, a thousand victories."
 
 Finally! The unmarked tomb. The Book Of Secrets. 
