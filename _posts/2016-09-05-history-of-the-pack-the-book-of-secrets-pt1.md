@@ -67,14 +67,14 @@ It was a respect that could only be acknowledged by silence.
 
 Silent nods. Silent salutes. Powerfully grave. The S.Q.U.I.D. leaders passed by.
 
-Zulras
-Stormhunter
-CORSAIR
-Myla
-BeefFizelRoll
-PuddingTown
-Overhauled
-Nightlane
+Zulras  
+Stormhunter  
+CORSAIR  
+Myla  
+BeefFizelRoll  
+PuddingTown  
+Overhauled  
+Nightlane  
 
 One by one, they flew their mighty warships to Lost Eden. Never to return. Never to fly again. Never to fight as one. A respected enemy. A shared ally. A proud fleet.
 
