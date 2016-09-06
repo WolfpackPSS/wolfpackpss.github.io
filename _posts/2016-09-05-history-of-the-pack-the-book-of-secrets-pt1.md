@@ -29,8 +29,8 @@ One copy survived. Written in the general's own hand. Bound together by hair fro
 
 It was the last copy. The Book Of Secrets. Waiting to be unearthed. Thousands upon thousands of years later. Waiting. Just Waiting. Until one day its secrets would be revealed.
 
-The book was cursed. 
-
+The book was cursed.  
+&nbsp; 
 
 Machiel scoffed. He did not believe in old wives' tales. 
 
@@ -44,8 +44,8 @@ The Book Of Secrets was written by a masterful general. The book would contain t
 
 When Machiel discovered of the book's existence, and then of its location, it became only a matter of timing. Of finding that right moment when he could steal in and claim his prize.
 
-The book was buried in a tomb, deep in the archives of the S.Q.U.I.D. empire. He knew where. It became only a question of when.
-
+The book was buried in a tomb, deep in the archives of the S.Q.U.I.D. empire. He knew where. It became only a question of when.  
+&nbsp; 
 
 It was the end of an era.
 
@@ -80,8 +80,8 @@ One by one, they flew their mighty warships to Lost Eden. Never to return. Never
 
 It was the end of an empire. It was the end of an era. 
 
-S.Q.U.I.D. WarFleet was no more.
-
+S.Q.U.I.D. WarFleet was no more.  
+&nbsp; 
 
 With so many on attendance at the procession, Machiel slipped into the capital unnoticed. Intent on pursuing his search for The Book Of Secrets.
 
@@ -91,8 +91,8 @@ Huge oxygenators pumped out exorbitant amounts of ozone in front of the building
 
 It was a breathable patio quite literally on the edge of space. It was the kind of waste and opulence that only the wealthy would indulge.
 
-Machiel disembarked from the ship with two of his trusty Troopers by his side and entered the archives.
-
+Machiel disembarked from the ship with two of his trusty Troopers by his side and entered the archives.  
+&nbsp; 
 
 The interior was enormous. Towering white colonnades stretched from floor to ceiling, with pillars as thick as old growth wood. While beautiful rounded domes of glass arched overhead, providing a full observatory onto the stars.
 
@@ -100,8 +100,8 @@ Machiel ignored the sights while his Troopers looked up in awe. Time was of the 
 
 Pressing a tile on the wall, he revealed a secret doorway. It opened onto a staircase that twisted downward into darkness. The foul stench of stagnant water rose up to greet them.
 
-Clapping his hand over his mouth, Machiel stepped inside.
-
+Clapping his hand over his mouth, Machiel stepped inside.  
+&nbsp; 
 
 The bottom of the stairway opened onto a wide cavern. Fluorescent lights, old and oddly placed, littered the sides of the stalactites and walls. Flickering on and off like torches under a breeze.
 
@@ -113,8 +113,8 @@ The Trooper reached out his hand to touch the surface...
 
 Machiel grabbed his wrist and looked at him sternly, "Do not touch the water."
 
-The Trooper gulped and pulled his hand back to his chest, rubbing his wrist. Looking over the rail, he watched as the ethereal shape floated away. Nonchalant. All things would come with time.
-
+The Trooper gulped and pulled his hand back to his chest, rubbing his wrist. Looking over the rail, he watched as the ethereal shape floated away. Nonchalant. All things would come with time.  
+&nbsp; 
 
 After crossing the bridge, they entered a broad chamber with three doors. The Room Of Probability.
 
@@ -127,7 +127,7 @@ Machiel had prepared in advance by studying the writings of an old probability g
 At the start of the test, all of the doors would share an equal probability of 1/3 chance of being correct. But according to Vos Savant, after the first guess and one of the doors had been eliminated, then the other door would now have a 2/3 chance of being the correct door. Whereas the original selection would only retain its 1/3 probability.
 
 So it was always in your best odds to switch your guess to the other door.
-
+&nbsp; 
 
 Machiel looked at his Trooper. He had grabbed his right hand. So he hazarded a guess that the right door was not the one that he wanted.
 
@@ -140,14 +140,14 @@ Only two doors remained to choose from. Right. His first pick. Or the other door
 Following Vos Savant's probability logic, Machiel chose the other and now turned the dial to the left.
 
 The left door opened onto a passageway.
-
+&nbsp; 
 
 They followed the passage down a long hall that opened on a circular room. The room was made of solid concrete. Cold and empty. Except for a stone pedestal that stood in the center.
 
 From a hole in the ceiling, rich light poured down from a blue star on top of the pedestal. Revealing a book. Bathed in pure, glittering starlight and opened to a single entry:
 
-> Know thyself, know thy enemies.
-> A thousand battles, a thousand victories.
+    Know thyself, know thy enemies.
+    A thousand battles, a thousand victories.
 
 Finally! The unmarked tomb. The Book Of Secrets. 
 
