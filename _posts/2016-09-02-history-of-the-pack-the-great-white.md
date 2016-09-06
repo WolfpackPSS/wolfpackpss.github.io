@@ -86,7 +86,7 @@ In a very literal sense, he could "feel" space.
 
 It was a lucky shot. A laser blast took him through the side as he was refastening a blown thermal coil and tightening the seal. 
 
-Laser fire from a ship's weapons are not small. It punched a hole through half of _sharky_'s torso. It was fatal. He only had time enough to turn and see Golden Boy severed in half by the same laser beam.
+Laser fire from a ship's weapons are not small. It punched a hole through half of \_sharky\_'s torso. It was fatal. He only had time enough to turn and see Golden Boy severed in half by the same laser beam.
 
 Everything went black. \_sharky\_ smiled. 
 
