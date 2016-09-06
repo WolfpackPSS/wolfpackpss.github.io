@@ -35,7 +35,7 @@ When two objects meet, they leave behind a residue of each other on the other's 
 
 He called them "sniffers".
 
-When a ship struck these particles, it sent them flying off in opposite directions like a pool ball. All you had to do was trace the line back to its source. 
+When a ship struck these particles, it sent them flying off in opposite directions like a pool ball. All he had to do was trace the line back to its source. 
 
 It was how \_sharky\_ discovered his enemy. Floating along in the deep of space. Where he presumed his ship remained undetected. Ruby-Roo of S.Q.U.I.D. WarFleet.
 
@@ -55,7 +55,7 @@ Ruby-Roo's ship bent in half around \_sharky\_'s hull, hurtling them together ma
 
 His Interceptors flew out of the hangar like hornets from a kicked hive. Opening fire on the exterior of Ruby-Roo's ship moments after impact.
 
-Teleporters were unnecessary. With the close proximity and devastation wrecked by the collision, you could simply walk onboard the other ship.
+Teleporters were unnecessary. With the close proximity and devastation wrecked by the collision, boarders could simply walk onto the other ship.
 
 Following pre-determined attack plans, \_sharky\_ sent a Slimer to destroy the enemy turrets and ACLs. Following him, Lollita took out the enemy plasma cannons and engines. While his ship's missiles peppered the enemy's torpedo rooms. Leaving his lasers to work the medbay and finish off any wounded. 
 
