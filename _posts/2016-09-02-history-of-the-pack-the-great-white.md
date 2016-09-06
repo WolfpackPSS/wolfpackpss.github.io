@@ -44,7 +44,7 @@ He would discover his presumption was wrong.
 
 \_sharky\_ had equipped the front of his ship with a steel battering ram. Strong armor plates overlapping and stacked on top of each other. Reinforcing the entire forward bulkhead.
 
-Missiles and laser fire worked great for surgical strikes. But _sharky_'s ship was a 45,000 ton juggernaut. The speed at which he pushed the engines was enough to melt the reactors. Nothing could withstand the force of impact he was about to unleash.
+Missiles and laser fire worked great for surgical strikes. But \_sharky\_'s ship was a 45,000 ton juggernaut. The speed at which he pushed the engines was enough to melt the reactors. Nothing could withstand the force of impact he was about to unleash.
 
 He smashed into the hull of Ruby-Roo like a great white hitting a seal and breaking the surface of the water. Powerful jaws clamping down.
 
