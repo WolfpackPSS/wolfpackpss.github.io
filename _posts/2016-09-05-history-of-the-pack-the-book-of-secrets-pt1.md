@@ -126,7 +126,7 @@ Machiel had prepared in advance by studying the writings of an old probability g
 
 At the start of the test, all of the doors would share an equal probability of 1/3 chance of being correct. But according to Vos Savant, after the first guess and one of the doors had been eliminated, then the other door would now have a 2/3 chance of being the correct door. Whereas the original selection would only retain its 1/3 probability.
 
-So it was always in your best odds to switch your guess to the other door.
+So it was always in your best odds to switch your guess to the other door.  
 &nbsp; 
 
 Machiel looked at his Trooper. He had grabbed his right hand. So he hazarded a guess that the right door was not the one that he wanted.
