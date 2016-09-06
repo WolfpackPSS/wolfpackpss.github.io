@@ -122,7 +122,7 @@ Machiel had been forewarned of this room when he learned of the book's location.
 
 Then it became a question of which of the remaining two doors he would select for his second and final guess. Stick with his original choice? Or choose the other door?
 
-Machiel had prepared in advance by studying the writings of an old probability guru by the name of Vos Savant. 
+Machiel had prepared in advance by studying the writings of an old probability wizard by the name of Vos Savant. 
 
 At the start of the test, all of the doors would share an equal probability of 1/3 chance of being correct. But according to Vos Savant, after the first guess and one of the doors had been eliminated, then the other door would now have a 2/3 chance of being the correct door. Whereas the original selection would only retain its 1/3 probability.
 
