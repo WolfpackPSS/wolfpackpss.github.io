@@ -131,7 +131,7 @@ He walked into Missle Bay 1, "Report."
 
 "Uh, sir. The missile controls would not respond to our commands. The comms went silent and we couldn't open the doors. We lost control of the room. The missiles just began firing on their own.
 
-"Sir, I hesitate to say this.... It was like it had became possessed."
+"Sir, I hesitate to say this. It was like it had become.... possessed."
 
 The Book Of Secrets. Machiel remembered the green fire pouring forth from its pages. Up his arms. Into the console.
 
