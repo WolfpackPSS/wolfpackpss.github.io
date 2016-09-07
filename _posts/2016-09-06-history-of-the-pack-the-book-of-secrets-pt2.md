@@ -119,7 +119,7 @@ Static. Still nothing.
 
 The battle was over in little more than a minute. 
 
-leoliu86's shields were not built to withstand the massive amounts of energy surging from Machiel's lasers. Once the reactors were distintegrated, his ship became nothing more than a powerless can floating through space.  
+leoliu86's shields were not built to withstand the massive amounts of energy surging from Machiel's lasers. Once the reactors were distintegrated, his ship became nothing more than a powerless bucket floating through space.  
 &nbsp; 
 
 "Uh, sir? I think you better get down here," it was Trooper calling from Missile Bay 1.
