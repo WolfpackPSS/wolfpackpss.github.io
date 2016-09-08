@@ -42,7 +42,7 @@ Cara was slumped against the systems monitor. Test girl grabbed her by the colla
 
 Test girl patted her on the chest, "Cara, bring up the systems and get me a damage report immediately. I need to know what hit us and took out our shields."
 
-Jessica was on the floor. The weapons display was destroyed. Jessica took the brunt of it. Test girl didn't have much hope, but she checked Jessica's pulse. Nothing. She squeezed Jessica's arm.
+Jessica was on the floor. The weapons display was destroyed. Jessica took the brunt of it. Test girl didn't have much hope, but she checked her pulse. Nothing. She squeezed Jessica's arm.
 
 The weapons would have to be controlled individually at each of the weapon rooms. She had trained her crew for this. They were good crew. They wouldn't fail her.
 
