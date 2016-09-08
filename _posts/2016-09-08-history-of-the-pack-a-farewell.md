@@ -63,7 +63,7 @@ Frak. She looked at her Trooper. She only had one runner. She would have to make
 
 It was their only shot. Even the playing field and bring themselves back into the fight. 
 
-Trooper looked at her, "Sir, enemy shield generator are usually heavily guarded. If you send Zhang Fei in there, they'll kill him."
+Trooper looked at her, "Sir, enemy shield generators are usually heavily guarded. If you send Zhang Fei in there, they'll kill him."
 
 Test girl gave her Trooper a hard look. One crew for many. This was battle. She did not like to be reminded of the lives she risked. Nor would she repeat an order.
 
