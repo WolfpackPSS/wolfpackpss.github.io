@@ -86,9 +86,9 @@ xEEVEEx, WarWolff, Sumara, Caxy, Deathlord291, Machiel, Hyten, Seq and I. Standi
 
 We looked out the observation window. Seeing Test girl's proud craft in all its glory. Her last flight into Lost Eden. We watched quietly as her ship flew away.
 
-xEEVEEx placed his hand against the glass. 
+xEEVEEx put his hand against the glass. 
 
-Sumara wrapped her arms around his and I laid a hand on his shoulder. Deathlord291 and Machiel bowed their heads. Hyten and Seq lit a candle for their departing friend.
+Sumara wrapped her arms around his and I placed a hand on his shoulder. Deathlord291 and Machiel bowed their heads. Hyten and Seq lit a candle for their departing friend.
 
 There was a tear in WarWolff's eye.
 
