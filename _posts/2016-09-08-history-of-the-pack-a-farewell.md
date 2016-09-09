@@ -101,6 +101,7 @@ Goodbye, old friend.
 
 
 ![Test_girl](/assets/img/archivist/PackHist013_Testgirl.jpg "Test girl in Lost Eden")
+*Test girl in Lost Eden*
 
 
 
