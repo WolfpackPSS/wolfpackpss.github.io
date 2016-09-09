@@ -77,3 +77,9 @@ It was a battle of legends. Sumara destroyed the great PuddingTown of S.Q.U.I.D.
 WarWolff was proud to see his friend again. It was a victory worthy of celebration.
 
 Sumara Of The Stout Heart. Hero of Wolfpack.
+
+![PackHist004_Sumara](/assets/img/archivist/PackHist004_Sumara.jpg "Sumara defeats PuddingTown")
+
+
+
+

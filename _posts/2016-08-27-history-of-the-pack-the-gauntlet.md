@@ -106,3 +106,9 @@ SCVsUnion stepped onto the enemy bridge and placed his gauntlet on the console.
 It was a sobering victory. 
 
 SCVsUnion. The Gauntlet of Wolfpack.
+
+![PackHist005_SCVsUnion](/assets/img/archivist/PackHist005_SCVsUnion.jpg "SCVsUnion defeats Hypnosia")
+
+
+
+

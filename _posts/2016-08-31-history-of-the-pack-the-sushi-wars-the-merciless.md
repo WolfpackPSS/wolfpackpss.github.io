@@ -105,3 +105,8 @@ There was no final confrontation. No last stand. No epic glorious battle. No ter
 It was a war concluded in silence.
 
 With The Sushi Train disbanded, the S.Q.U.I.D. WarFleet quietly resumed their place of authority over the galaxy.
+
+![PackHist008_SushiWarsPt3_Deathlord291_SushiTrain](/assets/img/archivist/PackHist008_SushiWarsPt3_Deathlord291_SushiTrain.jpg "Deathlord291 defeats Cpt. Yami")
+
+
+

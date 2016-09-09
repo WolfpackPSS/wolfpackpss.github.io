@@ -100,7 +100,7 @@ Goodbye, Test girl. May your journey find you happiness and new friendships.
 Goodbye, old friend.
 
 
-![Test_girl](/assets/img/archivist/PackHist013_Testgirl.jpg "Test girl in Lost Eden")
+![PackHist013_Testgirl](/assets/img/archivist/PackHist013_Testgirl.jpg "Test girl in Lost Eden")
 
 
 
