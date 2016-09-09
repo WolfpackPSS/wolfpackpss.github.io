@@ -178,6 +178,14 @@ img {
   }
 }
 
+.list-container {
+  position: relative;
+  padding-top: 10px;
+  font-family: "Titillium Web", sans-serif;
+  letter-spacing: .09em;
+}
+
+
 
 /* =======================
  * post layout

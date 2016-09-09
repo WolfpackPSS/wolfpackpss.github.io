@@ -6,18 +6,4 @@ favicon: /assets/img/favicon.ico
 google_analytics: UA-73339041-2
 disqus_shortname: wolfpackpss
 
-about:
-  - paragraph: ?link?, brief history of the legends
-    text_align: left
-    links:
-      - name: Archivist's Quarters
-        url: /archivist/2016/08/22/history-of-the-pack-first-days.html
-        external: false
-  - paragraph: ?link?, for PixelStarships
-    text_align: left
-    links:
-      - name: Game Stats
-        url: /tbd/
-        external: true
-
     
