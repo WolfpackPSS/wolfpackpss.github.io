@@ -24,6 +24,7 @@ $(document).ready(function() {
 
   // insert caption for post imgs
   var caption = "";
+  /* Removed Figure indicator from images
   if ($(".post-content").hasClass("chinese")) {
     caption = "图";
   } else {
@@ -33,6 +34,7 @@ $(document).ready(function() {
   for (var i = 0; i < imgs.length; i ++) {
     $(imgs[i]).parent().append("<p style='text-align:center'>" + caption + " " + (i+1) + "</p>");
   }
+  */
 
   // show off-canvas menu
   if (window.matchMedia('(max-width: 768px)').matches) {
