@@ -67,8 +67,6 @@ img {
   max-width: 100%;
 }
 
-img + em { }
-
 .footer {
   position: absolute;
   bottom: 0;
