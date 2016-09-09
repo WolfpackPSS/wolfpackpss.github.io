@@ -138,7 +138,7 @@ The Book Of Secrets. Machiel remembered the green fire pouring forth from its pa
 What had he brought onboard with them? What had he exposed to his ship and crew?
 
 
-![PackHist012_MachielPt2](/assets/img/archivist/PackHist012_MachielPt2.jpg "Machiel defeats leoliu86")
+![PackHist012_MachielPt2](/assets/img/archivist/PackHist012_MachielPt2.png "Machiel defeats leoliu86")
 
 
 
