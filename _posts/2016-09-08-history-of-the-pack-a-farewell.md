@@ -100,4 +100,7 @@ Goodbye, Test girl. May your journey find you happiness and new friendships.
 Goodbye, old friend.
 
 
+![Test girl in Lost Eden](/assets/img/archivist/PackHist013_Testgirl.jpg)
+
+
 
