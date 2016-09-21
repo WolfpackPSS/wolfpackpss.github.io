@@ -99,7 +99,7 @@ A tempting target upon which the enemy could redeem themselves after their first
 
 "A scrabble of ragtag ships, you transformed yourselves into a fleet of a lethal fighting force. Where others fell, you endured. For this moment.
 
-"This moment, you will claim your place in the galaxy. This moment, you will look across the battle field. You will see the enemy armada assembled against you. And you will say, "No more."
+"This moment, you will claim your place in the galaxy. This moment, you will look across the battlefield. You will see the enemy armada assembled against you. And you will say, "No more."
 
 "No more will I stand aside. No more will I go unheard. No more will I sit idly by and watch as others tear the galaxy apart. No more will I endure.
 
@@ -113,7 +113,7 @@ His fleet. His proud captains. The Wolfpack insignia blazened angrily across the
 
 "Officers, assemble your squadrons. Remember your orders. Carry yourselves with honor and bring your pack glory.
 
-"Wolfpack, prepare to engage."
+"Wolfpack, prepare to engage the enemy."
 
 
 ![PackHist014_WarWolff](/assets/img/archivist/PackHist014_WarWolff.png "WarWolff - The Great Wolff")
