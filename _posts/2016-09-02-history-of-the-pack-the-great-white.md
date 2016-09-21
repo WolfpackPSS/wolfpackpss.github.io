@@ -123,7 +123,7 @@ A new host body would be needed to represent himself among Wolfpack. A steel aut
 The Great White.
 
 
-![PackHist010_Sharky](/assets/img/archivist/PackHist010_Sharky.png "_sharky_ defeats Ruby-Roo")
+![PackHist010_Sharky](/assets/img/archivist/PackHist010_Sharky.png "sharky defeats Ruby-Roo")
 
 
 

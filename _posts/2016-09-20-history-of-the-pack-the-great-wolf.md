@@ -116,8 +116,6 @@ His fleet. His proud captains. The Wolfpack insignia blazened angrily across the
 "Wolfpack, prepare to engage."
 
 
-![PackHist012_MachielPt2](/assets/img/archivist/PackHist012_MachielPt2.png "Machiel defeats leoliu86")
-
 ![PackHist014_WarWolff](/assets/img/archivist/PackHist014_WarWolff.png "WarWolff - The Great Wolff")
 
 
