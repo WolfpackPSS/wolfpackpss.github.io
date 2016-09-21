@@ -103,7 +103,7 @@ A tempting target upon which the enemy could redeem themselves after their first
 
 "No more will I stand aside. No more will I go unheard. No more will I sit idly by and watch as others tear the galaxy apart. No more will I endure.
 
-"From this moment forth, you captains of Wolfpack will prevail."  
+"From this moment forth, you captains of Wolfpack will face your enemies and you will prevail."  
 &nbsp; 
 
 WarWolff looked out upon the mighty warships in formation around him. xEEVEEx in his powerful emerald federation. Sumara in her aqua dorito-shaped squid. \_sharky\_ with the vicious red teeth painted across his bow.
