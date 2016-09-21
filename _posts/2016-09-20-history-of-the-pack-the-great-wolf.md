@@ -82,9 +82,9 @@ Top and bottom squadrons were less likely to receive enemy fire. Sumara, Deathlo
 ArchNadeom and fritz were built like skirmishers. Using hit-and-run tactics, they could engage and harrass larger ships for a significant amount of time until one or the other finally came out on top. Qtarsis would help finish off any stragglers. As a Sleeper squadron, they offered what the fleet would need most from them. Time.  
 &nbsp; 
 
-"I will take point with _sharky_ and CyberWocky."
+"I will take point with \_sharky\_ and CyberWocky."
 
-The strategy of a Vic Triple-Deck Sleeper formation was to hit the opposing force like a wrecking ball. Between the coordinated attack of WarWolff's twin cannons and _sharky_'s battering ram, there wouldn't be much left standing after their first frontal assault.
+The strategy of a Vic Triple-Deck Sleeper formation was to hit the opposing force like a wrecking ball. Between the coordinated attack of WarWolff's twin cannons and \_sharky\_'s battering ram, there wouldn't be much left standing after their first frontal assault.
 
 They would smash into the enemy ranks with enough power to break through and then keep sailing at maximum speed before the enemy could close on their flanks. It was a tactic that would depend on force and speed. 
 
@@ -106,7 +106,7 @@ A tempting target upon which the enemy could redeem themselves after their first
 "From this moment forth, the captains of Wolfpack will be known."  
 &nbsp; 
 
-WarWolff looked out upon the mighty warships in formation around him. xEEVEEx in his powerful emerald federation. Sumara in her aqua dorito-shaped squid. _sharky_ with the vicious red teeth painted across his bow.
+WarWolff looked out upon the mighty warships in formation around him. xEEVEEx in his powerful emerald federation. Sumara in her aqua dorito-shaped squid. \_sharky\_ with the vicious red teeth painted across his bow.
 
 His fleet. His proud captains. The Wolfpack insignia blazened angrily across their hulls.  
 &nbsp; 
