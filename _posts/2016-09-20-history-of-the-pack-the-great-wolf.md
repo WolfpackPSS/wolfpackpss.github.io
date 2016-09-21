@@ -103,7 +103,7 @@ A tempting target upon which the enemy could redeem themselves after their first
 
 "No more will I stand aside. No more will I go unheard. No more will I sit idly by and watch as others tear the galaxy apart. No more will I endure.
 
-"From this moment forth, the captains of Wolfpack will be known."  
+"From this moment forth, you captains of Wolfpack will be known."  
 &nbsp; 
 
 WarWolff looked out upon the mighty warships in formation around him. xEEVEEx in his powerful emerald federation. Sumara in her aqua dorito-shaped squid. \_sharky\_ with the vicious red teeth painted across his bow.
@@ -115,6 +115,8 @@ His fleet. His proud captains. The Wolfpack insignia blazened angrily across the
 
 "Wolfpack, prepare to engage."
 
+
+![PackHist012_MachielPt2](/assets/img/archivist/PackHist012_MachielPt2.png "Machiel defeats leoliu86")
 
 ![PackHist014_WarWolff](/assets/img/archivist/PackHist014_WarWolff.png "WarWolff - The Great Wolff")
 

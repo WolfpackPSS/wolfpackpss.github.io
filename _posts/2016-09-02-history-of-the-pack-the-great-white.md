@@ -121,3 +121,13 @@ A new host body would be needed to represent himself among Wolfpack. A steel aut
 \_sharky\_ was the ship. 
 
 The Great White.
+
+
+![PackHist010_Sharky](/assets/img/archivist/PackHist010_Sharky.png "_sharky_ defeats Ruby-Roo")
+
+
+
+
+
+
+
