@@ -13,7 +13,7 @@ WarWolff stood on the bridge looking out.
 
 He could see them. Dark blots against the stars. The hulls of one hundred warships. One thousand guns arrayed against him. The mighty armada of Victrix Mortalis. 
 
-WarWolff stood tall on his bridge. Hands clasped behind his back. His cloak was heavy. The thick fur cut with many scars. A dangerous glint in his eye. 
+WarWolff stood tall. Hands clasped behind his back. His cloak was heavy. The thick fur cut with many scars. A dangerous glint in his eye. 
 
 His enemies would rue his name.
 
