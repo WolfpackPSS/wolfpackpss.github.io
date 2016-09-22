@@ -56,7 +56,7 @@ WarWolff smiled grimly. His fleet was not Persian. They were wolves.
 
 "Broadcast my orders across the fleet. Vic Triple-Deck Sleeper formation."
 
-The Vic formation was a standard aerial combat formation. Three ships. One on point. With two further back on either flank. In this case though, the standard ship placements would be filled by full squadrons.
+The Vic formation was a standard aerial combat formation. Three ships. One on point. With two further back on either flank. In this case though, the normal ship placements would be filled by full squadrons.
 
 Triple-Deck added two more levels of squadrons. One above and one below. Making the formation three layers high.
 
@@ -111,9 +111,7 @@ WarWolff looked out upon the mighty warships in formation around him. xEEVEEx in
 His fleet. His proud captains. The Wolfpack insignia blazened angrily across their hulls.  
 &nbsp; 
 
-"Officers, assemble your squadrons. Remember your orders. Carry yourselves with honor and bring your pack glory.
-
-"Wolfpack, prepare to engage the enemy."
+"Officers, assemble your squadrons. Wolfpack, prepare to engage the enemy."
 
 
 ![PackHist014_WarWolff](/assets/img/archivist/PackHist014_WarWolff.png "WarWolff - The Great Wolff")
