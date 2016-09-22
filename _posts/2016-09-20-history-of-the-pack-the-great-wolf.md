@@ -108,8 +108,7 @@ A tempting target upon which the enemy could redeem themselves after their first
 
 WarWolff looked out upon the mighty warships in formation around him. xEEVEEx in his powerful emerald federation. Sumara in her aqua dorito-shaped squid. \_sharky\_ with the vicious red teeth painted across his bow.
 
-His fleet. His proud captains. The Wolfpack insignia blazened angrily across their hulls.  
-&nbsp; 
+His fleet. His proud captains. The Wolfpack insignia blazened angrily across their hulls.
 
 "Officers, assemble your squadrons. Wolfpack, prepare to engage the enemy."
 
