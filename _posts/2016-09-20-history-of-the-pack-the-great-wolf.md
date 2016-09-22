@@ -110,7 +110,7 @@ WarWolff looked out upon the mighty warships in formation around him. xEEVEEx in
 
 His fleet. His proud captains. The Wolfpack insignia blazened angrily across their hulls.
 
-"Officers, assemble your squadrons. Wolfpack, prepare to engage the enemy."
+"Officers, assemble your squadrons. Wolfpack, prepare to engage."
 
 
 ![PackHist014_WarWolff](/assets/img/archivist/PackHist014_WarWolff.png "WarWolff - The Great Wolff")
