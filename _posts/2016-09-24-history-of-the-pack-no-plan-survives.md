@@ -112,7 +112,7 @@ Big Bertha missed, but Krupp hit the side reactor.
 
 With the velocity of the projectile added to the already incredible speed of WarWolff's ship, the shell dimpled into Runningman's shield and then popped through. 
 
-It mushroome against the hull, doubling in size. Buckling the frame inward and then tearing off the whole rear starboard side of the ship.  
+It mushroomed against the hull, doubling in size. Buckling the frame inward and then tearing off the whole rear starboard side of the ship.  
 &nbsp;
 
 \_sharky\_'s attack was not as successful. 
