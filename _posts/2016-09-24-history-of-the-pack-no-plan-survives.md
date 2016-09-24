@@ -149,7 +149,7 @@ A mighty behemoth of a ship, flying under the name Brook-Lyn, had wheeled their 
 
 "xEEVEEx, enemy ships are breaking through our left flank. Hold your position until we can punch through that roadblock."
 
-.....
+\.\.\.\.\.
 
 WarWolff's ship was wracked by another heavy barrage of enemy fire from port-side by Brook-Lyn.
 
