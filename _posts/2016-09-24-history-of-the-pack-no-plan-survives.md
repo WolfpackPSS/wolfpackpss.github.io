@@ -239,8 +239,7 @@ It triggered a chain-reaction of explosions across the other reactors. Destroyin
 
 xEEVEEx and his new wolf squadron fanned out around the edges. Wolfpack rallied its remaining ships. Together, they destroyed the enemy commander Kirkbane before he could respond. 
 
-The enemy fleet routed. Victrix Mortalis lost its hold of power. Wolfpack stood in its place.  
-&nbsp; 
+The enemy fleet routed. Victrix Mortalis lost its hold of power. Wolfpack stood in its place.
 
 WarWolff beamed proudly. A cheer erupted from his ranks. There would be celebration in the coming days.
 
