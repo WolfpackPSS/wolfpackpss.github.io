@@ -194,11 +194,11 @@ Librakron kept his distance. He looked as wary of Machiel as the enemy was.
 "You have our word, Commander."  
 &nbsp; 
 
-It did not matter. For all his plans, WarWolff had failed. 
+It did not matter. 
 
 Victrix Mortalis closed around them like a noose. WarWolff had understood the enemy's tactic before battle, but he had charged in anyway. He had sacrificed his fleet.
 
-\_sharky\_'s ship titled upward at an awkward angle. Explosions rupturing along his side.
+\_sharky\_'s ship tilted upward at an awkward angle. Explosions rupturing along his side.
 
 A torpedo slipped past Sumara's shield. Killing her engine and stopping her ship in its tracks.
 
