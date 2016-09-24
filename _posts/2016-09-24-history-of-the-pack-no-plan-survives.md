@@ -232,7 +232,7 @@ Wolfpack's ancestors had accepted them. They were S.Q.U.I.D. no more. From this 
 
 They tore into the backs of Victrix Mortalis like a hellstorm. Ships disintegrated whole under the awesome volley of their combined firepower. 
 
-Brook-Lyn disengaged from WarWolff and turned to meet the new threat. He took advantage of her distraction to fire a devastating shell from his remaining cannon Big Bertha into her reactor. 
+Brook-Lyn disengaged from WarWolff to turn and meet the new threat. He took advantage of her distraction to fire a devastating shell from his remaining cannon Big Bertha into her reactor. 
 
 It triggered a chain-reaction of explosions across the other reactors. Destroying her ship.  
 &nbsp; 
