@@ -151,14 +151,14 @@ A mighty behemoth of a ship, flying under the name Brook-Lyn, had wheeled their 
 
 \.\.\.\.\.
 
-WarWolff's ship was wracked by another heavy barrage of enemy fire from port-side by Brook-Lyn.
+WarWolff's ship was wracked by another heavy barrage of enemy fire from port-side.
 
 "xEEVEEx, respond. Hold that flank!"
 
 "Commander, SCVsUnion reporting. Lieutenant xEEVEEx split formation and flew off. Voxar and I are fending them off as best we can, but we can't hold much longer."  
 &nbsp; 
 
-xEEVEEx? Abandon his post? In the middle of battle?
+xEEVEEx abandoned his post? In the middle of battle?
 
 "Sir, our port cannon is destroyed. Our shields can't withstand that much firepower. The hull is taking damage."
 
