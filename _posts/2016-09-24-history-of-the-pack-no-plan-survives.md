@@ -75,7 +75,7 @@ WarWolff would not be directing this battle from afar. He would be part of the b
 
 He would depend on his officers to think independently. To be there. To respond. To act. To make the quick on-the-spot decisions that would be necessary to carry Wolfpack to victory.
 
-As such, the orders for an officer had to be in terms of strategy and generalization. Allowing ample room for them to command their squadrons and respond to immediate threats as best they saw fit while still carrying out their orders.  
+As such, the orders for an officer had to be in terms of strategy and generalization. Allowing ample room for them to command their squadrons and respond to immediate threats as best they saw fit, while still carrying out their orders.  
 &nbsp; 
 
 "Engines to 90% power."
@@ -117,7 +117,7 @@ It mushroomed against the hull, doubling in size. Buckling the frame inward and 
 
 \_sharky\_'s attack was not as successful. 
 
-He depended on surprise and hitting the enemy broadside. Where he would have a much larger target and need to only compensate for minor adjustments in the enemy's tilt or speed.
+He depended on surprise and hitting the enemy broadside, where he would have a much larger target and need to only compensate for minor adjustments in the enemy's tilt or speed.
 
 But facing the enemy head-on, the slightest change in direction for either ship could result in him missing completely.
 
