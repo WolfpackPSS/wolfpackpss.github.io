@@ -194,7 +194,7 @@ Librakron kept his distance. He looked as wary of Machiel as the enemy was.
 "You have our word, Commander."  
 &nbsp; 
 
-Victrix Mortalis closed around them like a noose. WarWolff had understood the enemy's tactic before battle, but he had charged in anyway. He had sacrificed his fleet.
+Victrix Mortalis closed around them like a noose. WarWolff had understood the enemy's tactic before battle, but he had charged in anyway.
 
 \_sharky\_'s ship tilted upward at an awkward angle. Explosions rupturing along his side.
 
