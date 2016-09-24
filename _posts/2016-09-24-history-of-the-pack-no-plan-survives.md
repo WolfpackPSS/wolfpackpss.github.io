@@ -62,7 +62,7 @@ There are limits to speed even in space, but they are measured in the astronomic
 
 WarWolff could feel the ship vibrating beneath him. A humming noise started in the beams and was slowly beginning to echo in the hull.
 
-The images on the displays began to blur. The crew strapped themselves. Fastening their wrists to the terminals to ensure they still pressed the right keys despite the vibrations.  
+The images on the displays began to blur. The crew strapped themselves in. Fastening their wrists to the terminals to ensure they still pressed the right keys despite the vibrations.  
 &nbsp; 
 
 "Engines to 80% power.
