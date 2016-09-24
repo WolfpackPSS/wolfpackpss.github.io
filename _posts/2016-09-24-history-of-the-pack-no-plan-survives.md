@@ -216,14 +216,14 @@ xEEVEEx flew out of the nebula with reinforcements on his wings. The powerful of
 
 Their mighty pearlescent hulls no less diminished by their disbandment.
 
-RollFizelBeef
-Myke
-Nausicaa
-Gnasher
-Dan_the_man181
-JeffLA
-Sa ok
-Alinea
+RollFizelBeef  
+Myke  
+Nausicaa  
+Gnasher  
+Dan_the_man181  
+JeffLA  
+Sa ok  
+Alinea  
 
 And something else too. The apparitions of wolves. Wolves howling on the flanks of xEEVEEx and the S.Q.U.I.D. warships. 
 
