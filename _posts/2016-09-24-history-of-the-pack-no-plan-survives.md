@@ -143,7 +143,7 @@ A massive explosion rocked WarWolff's ship from the port side.
 
 "Sir, our port cannon has been hit. Enemy fire coming from our left flank."
 
-A mighty behemoth of a ship, flying under the name Brook-Lyn, had wheeled their assault onto WarWolff. The wall formation of Victrix Mortalis was slowly pivoting on its center and closing on Wolfpack's flanks.
+A mighty behemoth of a ship, flying under the name Brook-Lyn, had wheeled her assault onto WarWolff. The wall formation of Victrix Mortalis was slowly pivoting on its center and closing on Wolfpack's flanks.
 
 "Gun crew, focus your cannons on that pile-up of ships. Clear us an opening.
 
@@ -237,7 +237,7 @@ Brook-Lyn disengaged from WarWolff to turn and meet the new threat. He took adva
 It triggered a chain-reaction of explosions across the other reactors. Destroying her ship.  
 &nbsp; 
 
-xEEVEEx and his new wolf squadron fanned out around the edges. Wolfpack rallied its remaining ships. Together, they destroyed the enemy commander Kirkbane before he could respond. 
+xEEVEEx and his new wolf squadron fanned out around the edges. Wolfpack rallied its remaining ships. Together, they destroyed the enemy commander Kirkbane before he could mount a defensive. 
 
 The enemy fleet routed. Victrix Mortalis lost its hold of power. Wolfpack stood in its place.
 
