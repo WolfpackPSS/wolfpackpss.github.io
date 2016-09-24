@@ -235,7 +235,7 @@ Brook-Lyn disengaged from WarWolff to turn and meet the new threat. He took adva
 It triggered a chain-reaction of explosions across the other reactors. Destroying her ship.  
 &nbsp; 
 
-xEEVEEx and his new wolf squadron fanned out around the edges. Wolfpack rallied its remaining ships. Together, they destroyed the enemy commander Kirkbane before he could mount a defensive. 
+xEEVEEx and his new wolf squadron fanned out around the edges. WarWolff rallied his remaining ships. Together, they destroyed the enemy commander Kirkbane before he could mount a defensive. 
 
 The enemy fleet routed. Victrix Mortalis lost its hold of power. 
 
