@@ -155,7 +155,7 @@ WarWolff's ship was wracked by another heavy barrage of enemy fire from port-sid
 
 "xEEVEEx, respond. Hold that flank!"
 
-"Commander, SCVsUnion reporting. Lieutenant xEEVEEx split formation and flew off. Voxar and I are fending them off as best we can, but we can't hold much longer."  
+"Commander, SCVsUnion reporting. Lieutenant xEEVEEx split formation and flew off on his own. Voxar and I are fending them off as best we can, but we can't hold much longer."  
 &nbsp; 
 
 xEEVEEx abandoned his post? In the middle of battle?
@@ -194,7 +194,7 @@ Librakron kept his distance. He looked as wary of Machiel as the enemy was.
 "You have our word, Commander."  
 &nbsp; 
 
-Victrix Mortalis closed around them like a noose. WarWolff had understood the enemy's tactic before battle, but he had charged in anyway.
+Victrix Mortalis closed around them like a noose. Enemy ships pounding them from all sides.
 
 \_sharky\_'s ship tilted upward at an awkward angle. Explosions rupturing along his side.
 
@@ -203,7 +203,7 @@ A torpedo slipped past Sumara's shield. Killing her engine and stopping her ship
 Two well-placed shots took out Machiel's forward and aft lasers.  
 &nbsp; 
 
-WarWolff looked on helpless. His packmates were dying.  
+WarWolff looked on helpless. What had he done? His packmates were dying.  
 &nbsp; 
 
 "a-Woooooooo!!"
