@@ -246,6 +246,8 @@ WarWolff beamed proudly. A cheer erupted from his ranks. There would be celebrat
 
 ![PackHist015_WarWolffPt2_01](/assets/img/archivist/PackHist015_WarWolffPt2_01.png "WarWolff defeats Runningman")
 
+![PackHist015_WarWolffPt2_03](/assets/img/archivist/PackHist015_WarWolffPt2_03.jpg "WarWolff defeats Brook-Lyn")
+
 ![PackHist015_WarWolffPt2_02](/assets/img/archivist/PackHist015_WarWolffPt2_02.jpeg "WarWolff defeats Kirkbane")
 
 
