@@ -13,7 +13,7 @@ The void had swallowed him.
 
 Utter darkness stretched out before him, so inky and black that it almost had form in the mind’s eye. He had always wondered how complete nothingness was able to bear such crushing pressure on the mind, on the soul. Eyes shut tight against the weight, he exhaled slowly and opened them with purpose. Try as he might, no sight nor sound reached him. There was only this smothering world of nothingness.
  
-ArchNadeom, Keeper of the Histories, Sage, Fury and Dreadnought. All these titles and glory bestowed upon him and only one thought ravaged his racing mind, "I must go. This must end!"
+ArchNadeom, Keeper of the Histories, Sage, Fury, and Dreadnought. All these titles and glory bestowed upon him, but only one thought ravaged his racing mind, "I must go. This must end!"
 
 He was a Wolf Lord. One of the highest ranking members in WolfPack. Battle-hardened and draped in honours. Yet none of his achievements could hasten his release from this void. He was bound to this fate. But he knew that it would not be for long.
 
@@ -96,7 +96,8 @@ His reasons were simple and they were his own. He was not only the Wolfpack hist
 
 Another bonus was that many capital ship captains, on seeing the smaller class 9 destroyer, were inclined to think that this was a soft target and easy plunder. Typically finding out, right before their reactors went critical and they themselves were vented out into the cold black of space, that this was not the case. He wasn't a Dreadnought because he was easy meat.
 
-"Hello old girl," he chimed. A smile reaching his eyes, as he moved up the gang plank and into the main airlock,"It's time to get to work."
+"Hello old girl," he chimed. A smile reaching his eyes, as he moved up the gang plank and into the main airlock,"It's time to get to work."  
+&nbsp; 
 
 As he entered the bridge of The Harvester, his first mate Rocky greeted him with a low measured, "Captain on deck." For a rock, he was quite the intellectual himself, but would never admit it openly.
 
