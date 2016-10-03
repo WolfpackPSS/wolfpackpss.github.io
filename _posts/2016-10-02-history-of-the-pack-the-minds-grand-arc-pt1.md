@@ -127,7 +127,7 @@ He loathed what he was now forced to do. He would have to acquiesce to his great
 "Hello, Vlad."
 
 
-![PackHist017_ArchNadeom_Pt1(by_WarWolff)](/assets/img/archivist/PackHist017_ArchNadeom_Pt1(by_WarWolff).png "ArchNadeom")
+![PackHist017_ArchNadeom_Pt1(by_WarWolff)](/assets/img/archivist/PackHist017_ArchNadeom_Pt1(by_WarWolff).PNG "ArchNadeom")
 
 
 
