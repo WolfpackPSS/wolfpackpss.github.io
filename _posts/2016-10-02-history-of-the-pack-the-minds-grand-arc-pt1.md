@@ -122,9 +122,7 @@ They had often worked in opposition to each other. Playing their own pieces in a
 
 He sat sourly looking at the holo screen, then angrily punched in a series of commands on his chair’s console. The screen lit up with a data transmission signal and he waited. His face hard but composed, until a solid tone sounded that the signal was in the clear.
 
-He loathed what he was now forced to do. He would have to acquiesce to his great rival and ask for a favour. 
-
-"Hello, Vlad."
+He loathed what he was now forced to do. He would have to acquiesce to his great rival and ask for a favour, "Hello, Vlad."
 
 
 ![PackHist017_ArchNadeom_Pt1(by_WarWolff)](/assets/img/archivist/PackHist017_ArchNadeom_Pt1(by_WarWolff).PNG "ArchNadeom")
