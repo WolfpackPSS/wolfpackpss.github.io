@@ -18,11 +18,11 @@ Top ace captains of every fleet raged ruthless war on each other. Brazenly tresp
 Deep blood feuds were born.  
 &nbsp; 
 
-At the end of the cycle, the intergalactic news recognized the top three captains. Those whose warships were most garishly decorated in the trophies of their defeated enemies.
+The intergalactic news recognized the top three captains. Those whose warships were most garishly decorated in the trophies of their defeated enemies.
 
-1st. thunder_kiss_65 
-2nd. &#19971;&#23431; 
-3rd. Prinz_Eugen 
+1st. thunder_kiss_65  
+2nd. &#19971;&#23431;  
+3rd. Prinz_Eugen  
 
 All were of the fleet Elder Drivers. 
 
