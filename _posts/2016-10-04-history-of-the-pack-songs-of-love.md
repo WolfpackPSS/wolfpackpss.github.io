@@ -106,7 +106,7 @@ Sumara smirked. The joke never got old.
 
 She was much loved in the pack. As well as among other fleets in the galaxy. Winning herself the nickname Smelzy among her closest friends.
 
-She was aware of her growing popularity. But having championed the intergalactic contests, her fame was reaching unprecedented proportions. Now she received fan letters of undying love and loyalty from the pack?
+She was aware of her growing popularity. But having championed the intergalactic contests, her fame was reaching unprecedented proportions. Now she was receiving fan letters of undying love and loyalty from the pack?
 
 "Hmmmm, poetry. The cat sat on a mat inside a vat with a rat. This should prove interesting...."  
 &nbsp; 
