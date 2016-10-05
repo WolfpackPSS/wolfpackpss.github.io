@@ -26,16 +26,16 @@ The intergalactic news recognized the top three captains. Those whose warships w
 
 All were of the fleet Elder Drivers. 
 
-All featuring their own pictcasts. Weapons unholstered. Teeth grinning broad-toothed smiles. Standing triumphant over the smoldering ruins of some unfortunate captain. Like whalers leaning proudly against their harpoons, their biggest catch hooked and pulled up alongside their ship. 
+All featuring their own pictcasts. Weapons unholstered. Teeth grinning broad-toothed smiles. Standing triumphant over the smoldering ruins of some unfortunate captain. Like whalers leaning proudly against their harpoons. Their biggest catch hooked and pulled up alongside their ship. 
 
 Contemptuous. Flagrant. Cruel.
 
 It was a galaxy thirsty for war.  
 &nbsp; 
 
-Having finished off Victrix Mortalis, Wolfpack made a good standing for themselves. Solidly securing their own foothold in the galaxy. They were surpassed only by the fleets of Dark Matter Heroes and Elder Drivers.
+Having finished off Victrix Mortalis, Wolfpack made a good standing for themselves. Solidly securing their own foothold in the galaxy. They were surpassed only by the Dark Matter Heroes and Elder Drivers.
 
-Wolfpack even gave a strong account of themselves among the top captains. One of the pack's new recruits, OliveOyl, placed herself in 5th. Despite being hospitalized after a ruptured bulkhead smashed into her shoulder and shattered her arm. Lord Commander WarWolff was close behind her at 8th.  
+Wolfpack even gave a strong account of themselves among the top captains. One of the pack's new recruits, OliveOyl, placed herself in 5th. Despite being hospitalized after a ruptured bulkhead smashed into her shoulder and shattered her arm. Lord Commander WarWolff was close behind at 8th.  
 &nbsp; 
 
 Wolfpack was even strong enough to send aid to Dark Matter Heroes. 
@@ -59,12 +59,14 @@ Trying to escape a battle usually ends in catastrophe. There is a split second b
 
 Even sending a distress signal is pointless. Help could never reach you in time.  The best you can hope for is that someone sends a shop-vac and good cleanup crew. Or vultures to pick up the scraps.
 
-Space battles are fatalistic. Either your ship survives. Or it becomes a trophy adorning some other ship's wall.  
+Space battles are fatalistic. Either your ship survives. Or it becomes a trophy adorning another ship's wall.  
 &nbsp; 
 
 Sumara was attacked first by Cloggster of Clan Zaki. It was a brutal exchange of weapons, but Sumara came out on top. She left the wracked hulk of his ship smoking not far from her position. A warning against further adversaries.
 
-Then she was attacked by &#40614;&#36947;&#22823;&#29275;&#29275; . Then Quansei, Mdff8, and KuKu&#26705; . 
+Then she was attacked by &#40614;&#36947;&#22823;&#29275;&#29275;. 
+
+Then by Quansei, Mdff8, and KuKu&#26705; . 
 
 Single-handedly, she defeated them all. Lining the blackened husks of their broken ships in front of her. Like heads mounted on pickets on a castle wall. 
 
