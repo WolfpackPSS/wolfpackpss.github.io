@@ -84,7 +84,9 @@ Sumara looked out the observation window.
 
 Her ship orbited the planet Xeanus in the border sector. A white star shone around the edge of the planet's sphere. Catching the dunes of desert gold along its surface, under the aqua blue atmosphere. It was breathtaking.
 
-She hadn't forgotten why she had become a starship captain. Launching through the atmosphere at speeds upwards of Mach 23. The galaxy opening before her. Like walking out of a cave through a waterfall. Flying among the stars. Invigorating. Untethered. Free.
+She hadn't forgotten why she had become a starship captain. Launching through the atmosphere at speeds upwards of Mach 23. The galaxy opening before her. Like walking out of a cave through a waterfall. Flying among the stars. 
+
+Invigorating. Untethered. Free.
 
 Just look at that view.  
 &nbsp; 
