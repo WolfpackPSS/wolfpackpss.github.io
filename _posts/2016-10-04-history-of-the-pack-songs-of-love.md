@@ -108,7 +108,7 @@ She was much loved in the pack. As well as among other fleets in the galaxy. Win
 
 She was aware of her growing popularity. But having championed the intergalactic contests, her fame was reaching unprecedented proportions. Now she received fan letters of undying love and loyalty from the pack?
 
-"The cat sat on a mat inside a vat with a rat. Hmmmm, poetry. This should prove interesting...."  
+"Hmmmm, poetry. The cat sat on a mat inside a vat with a rat. This should prove interesting...."  
 &nbsp; 
 
 Smelzy oh Smelzy  
@@ -133,7 +133,7 @@ Nothing shall stop her
 Sumara, badass  
 Can you catch her? Better run  
 Bloody feasts await.  
---fritz
+--fritz  
 &nbsp; 
 
 Drink from me  
@@ -143,13 +143,13 @@ Moonlight on the pale skin
 Live for life  
 Love through death  
 Drink from me an eternal kiss  
---ArchNadeom
+--ArchNadeom  
 &nbsp; 
 
 Smelzy the Wolf Lord  
 Counting her bux and laughing.   
 BUX BUX BUX BUX BUX  
---SCVsUnion
+--SCVsUnion  
 &nbsp; 
 
 The Valkyries cries  
@@ -194,7 +194,7 @@ I follow Smelzy
 By her trailzy  
 You cannot failzy  
 To recognize the smellzy  
---Gnasher
+--Gnasher  
 &nbsp; 
 
 Suma in the Fall,  
