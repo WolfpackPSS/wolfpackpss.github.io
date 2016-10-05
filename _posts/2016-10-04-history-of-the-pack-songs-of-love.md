@@ -33,7 +33,7 @@ Contemptuous. Flagrant. Cruel.
 It was a galaxy thirsty for war.  
 &nbsp; 
 
-Having finished off Victrix Mortalis, Wolfpack made a good standing for themselves. Solidly securing their own foothold in the galaxy. They were surpassed only by the Dark Matter Heroes and Elder Drivers.
+Having routed Victrix Mortalis, Wolfpack made a good standing for themselves. Solidly securing their own foothold in the galaxy. They were surpassed only by the Dark Matter Heroes and Elder Drivers.
 
 Wolfpack even gave a strong account of themselves among the top captains. One of the pack's new recruits, OliveOyl, placed herself in 5th. Despite being hospitalized after a ruptured bulkhead smashed into her shoulder and shattered her arm. Lord Commander WarWolff was close behind at 8th.  
 &nbsp; 
