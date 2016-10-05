@@ -1,11 +1,11 @@
 ---
 layout: post
-title: Pack History &#35;20 <br><i>Songs of Love and Battle for the First Wolf Victor</i>
+title: Pack History &#35;20 <br><i>Songs Of Love And Battle For The First Wolf Victor</i>
 date: 2016-10-04
 tags: english
 category: archivist
 ---
-ArchNadeom, Keeper Of Records.<br>Stardate #262.
+ArchNadeom, Keeper Of Records.<br>Stardate #273.
 ------------------------------------------------
 &nbsp; 
 
