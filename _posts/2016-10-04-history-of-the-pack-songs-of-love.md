@@ -68,7 +68,7 @@ Then she was attacked by &#40614;&#36947;&#22823;&#29275;&#29275;.
 
 Then by Quansei, Mdff8, and KuKu&#26705; . 
 
-Single-handedly, she defeated them all. Lining the blackened husks of their broken ships in front of her. Like heads mounted on pickets on a castle wall. 
+Single-handedly, she defeated them all. Lining the blackened husks of their broken ships in front of her. Like heads mounted on the pickets of a castle wall. 
 
 Instead of warding off would-be attackers, the more victories she accumulated then the fiercer she was attacked. A mighty fire-belching dragon that every captain intent on proving his valor was keen to slay.  
 &nbsp; 
