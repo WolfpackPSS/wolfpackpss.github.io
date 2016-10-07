@@ -79,7 +79,7 @@ Caxy stepped forward with a bundle of furs in his arms. xEEVEEx stepped from the
 
 It was xEEVEEx who had drawn the S.Q.U.I.D. expatriates into their ranks. Helping them find a home among Wolfpack. It was xEEVEEx who had called them to the pack's rescue against Victrix Mortalis.
 
-The honor was his to bestow.
+The honors were his to bestow.
 
 He picked up a cloak from Caxy's bundle and draped it over RollFizelBeef's shoulders. 
 
