@@ -50,9 +50,7 @@ Skinkrules
 Qtarsis  
 Ivydocious  
 
-Their breath hit the air in steaming white puffs. Hot. Like snorting hounds.
-
-Black eyes burning.
+Their breath hit the air in steaming white puffs. Hot. Like snorting hounds. Their black eyes burning.
 
 WarWolff stood in the center. Mighty WarWolff. Lord Commander of Wolfpack. 
 &nbsp; 
