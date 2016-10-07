@@ -34,21 +34,21 @@ Sumara bundled in her silk rug. \_sharky\_'s conscience represented in its steel
 
 All of the pack were present.
 
-Machiel of the Green Fire 
-Deathlord291 the Merciless 
-ArchNadeom, Keeper of Records 
-fritz of the First Howl 
-Seq, Keeper Of The Way 
-Hyten, the Sentinel 
-Caxy, the All-Father 
+Machiel of the Green Fire  
+Deathlord291 the Merciless  
+ArchNadeom, Keeper of Records  
+fritz of the First Howl  
+Seq, Keeper Of The Way  
+Hyten, the Sentinel  
+Caxy, the All-Father  
 
-CyberWocky 
-MizzBlaze 
-Librakron 
-Voxar 
-Skinkrules 
-Qtarsis 
-Ivydocious 
+CyberWocky  
+MizzBlaze  
+Librakron  
+Voxar  
+Skinkrules  
+Qtarsis  
+Ivydocious  
 
 Their breath hit the air in steaming white puffs. Hot. Like snorting hounds.
 
@@ -59,14 +59,14 @@ WarWolff stood in the center. Mighty WarWolff. Lord Commander of Wolfpack.
 
 xEEVEEx stood before his commander at attention. The former members of S.Q.U.I.D. WarFleet standing in a line to his side.
 
-RollFizelBeef 
-Myke 
-Nausicaa 
-Gnasher 
-Dan_the_man181 
-JeffLA 
-Sa ok 
-Alinea 
+RollFizelBeef  
+Myke  
+Nausicaa  
+Gnasher  
+Dan_the_man181  
+JeffLA  
+Sa ok  
+Alinea  
 
 xEEVEEx had instructed them ahead of time. They were to dispense of their pearlescent S.Q.U.I.D. cloaks before the ceremony and arrive in simple white garb.
 
