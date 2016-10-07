@@ -50,9 +50,11 @@ Skinkrules
 Qtarsis  
 Ivydocious  
 
-Their breath hit the air in steaming white puffs. Hot. Like snorting hounds. Their black eyes burning.
+Their breath hit the air in steaming white puffs. Hot. Like snorting hounds. 
 
-WarWolff stood in the center. Mighty WarWolff. Lord Commander of Wolfpack. 
+Their black eyes burning.
+
+WarWolff stood in the center. Mighty WarWolff. Lord Commander of Wolfpack.  
 &nbsp; 
 
 xEEVEEx stood before his commander at attention. The former members of S.Q.U.I.D. WarFleet standing in a line to his side.
