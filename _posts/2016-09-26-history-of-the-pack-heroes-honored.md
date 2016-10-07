@@ -73,13 +73,13 @@ xEEVEEx had instructed them ahead of time. They were to dispense of their pearle
 They felt naked. Exposed. Surrounded by dark imposing figures. Their hot breath. Their fierce gaze. The tall trees looming over them. Stretching them deeper into their shadows.  
 &nbsp; 
 
-WarWolff look to the side and gave Caxy a nod.
+WarWolff looked to the side and gave Caxy a nod.
 
 Caxy stepped forward with a bundle of furs in his arms. xEEVEEx stepped from the line and met Caxy at the end. 
 
-It was xEEVEEx who had drawn the S.Q.U.I.D. into their ranks. Helping them find a home among Wolfpack. It was xEEVEEx who had called them to the pack's rescue against Victrix Mortalis.
+It was xEEVEEx who had drawn the S.Q.U.I.D. expatriates into their ranks. Helping them find a home among Wolfpack. It was xEEVEEx who had called them to the pack's rescue against Victrix Mortalis.
 
-The honor was his.
+The honor was his to bestow.
 
 He picked up a cloak from Caxy's bundle and draped it over RollFizelBeef's shoulders. 
 
@@ -127,7 +127,7 @@ WarWolff accepted the helmet from Sumara with a deep bow of his head.
 
 He looked at xEEVEEx and gave a significant look down. xEEVEEx took a knee. WarWolff placed the helmet on xEEVEEx's head. 
 
-The cold metal buzzed to life. Gears whirled and clank shut, fastening the armor in place. Seams lit up and glowed an electric lantern blue.  
+The cold metal buzzed to life. Gears whirled and clank shut, fastening the armor in place. Seams lit up and glowed in stripes an electric lantern blue.  
 &nbsp; 
 
 The helmet was alive multi-dimensionally. 
@@ -143,7 +143,7 @@ xEEVEEx stood. Armor plates extended out from the helmet. Clapping down on his s
 
 xEEVEEx had entered into a symbiotic relationship with the helmet. It would die for xEEVEEx. Protecting its host. Guarding his life with its own.
 
-It demanded one thing in return. Loyalty.  
+It demanded only one thing in return. Loyalty.  
 &nbsp; 
 
 A metal rod punched through xEEVEEx's sternum and latched itself painfully around his heart.
@@ -160,14 +160,14 @@ xEEVEEx had given the best of himself for the pack. WarWolff gave the best of th
 
 Sumara kicked open a metal container, "Finally! At least we don't have to worry about the champagne getting warm.
 
-"Don't worry xEEVEEx, I brought a beer bong too. I'm sure I can squeeze a tube through that visor. I've got PLENTY of experience from my days in Bore-Us-With-Books Academy."
+"Don't worry xEEVEEx, I brought a beer bong too. I'm sure I can squeeze a tube through that visor of your's. I've got PLENTY of experience from my drinking days in Bore-Us-With-Books Academy."
 
 The ceremony over, it was time for rough-housing and play.  
 &nbsp; 
 
 The new recruits blended in well. 
 
-They were as full of life and strength as his seasoned wolves. They found a natural harmony with their new packmates. And brought so much of their own vibrance and knowledge to the pack.
+They were as full of life and strength as his seasoned wolves. They found a natural harmony with their new packmates. And they brought so much of their own vibrance and knowledge to the pack.
 
 xEEVEEx had made a great decision bringing them in. He was proud of them. He was proud of his pack. 
 
