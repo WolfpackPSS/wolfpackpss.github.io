@@ -29,7 +29,7 @@ It was a solemn meeting.
 
 Tall figures standing in the snow. Heavy cloaks hunched over broad shoulders. White flecks of snow catching in their fur. 
 
-Sumara bundled in her silk rug. _sharky_'s conscience represented in its steel automaton. SCVsUnion flexing the fingers of his guantlet, keeping the joints from seizing in the cold. Oliver standing beside him.  
+Sumara bundled in her silk rug. \_sharky\_'s conscience represented in its steel automaton. SCVsUnion flexing the fingers of his guantlet, keeping the joints from seizing in the cold. Oliver standing beside him.  
 &nbsp; 
 
 All of the pack were present.
