@@ -9,7 +9,7 @@ ArchNadeom, Keeper Of Records.<br>Stardate #264.
 ------------------------------------------------
 &nbsp; 
 
-Snow gathered on the branches. Casting shadows under the moonlight. Trough the trees. Fields of white dusted in glittering blue.  
+Snow gathered on the branches. Casting shadows under the moonlight. Through the trees. Fields of white dusted in glittering blue.  
 &nbsp; 
 
 WarWolff placed a hand against an old wood circling the grove. 
@@ -127,7 +127,7 @@ WarWolff accepted the helmet from Sumara with a deep bow of his head.
 
 He looked at xEEVEEx and gave a significant look down. xEEVEEx took a knee. WarWolff placed the helmet on xEEVEEx's head. 
 
-The cold metal buzzed to life. Gears whirled and clank shut, fastening the armor in place. Seams lit up and glowed in stripes an electric lantern blue.  
+The cold metal buzzed to life. Gears whirled and clank shut, fastening the armor in place. Seams lit up and glowed in stripes of an electric lantern blue.  
 &nbsp; 
 
 The helmet was alive multi-dimensionally. 
@@ -160,7 +160,7 @@ xEEVEEx had given the best of himself for the pack. WarWolff gave the best of th
 
 Sumara kicked open a metal container, "Finally! At least we don't have to worry about the champagne getting warm.
 
-"Don't worry xEEVEEx, I brought a beer bong too. I'm sure I can squeeze a tube through that visor of your's. I've got PLENTY of experience from my drinking days in Bore-Us-With-Books Academy."
+"Don't worry xEEVEEx, I think I can squeeze a tube through that visor of your's so you can have champagne too. I've got PLENTY of experience from my drinking days in Bore-Us-With-Books Academy."
 
 The ceremony over, it was time for rough-housing and play.  
 &nbsp; 
@@ -169,7 +169,7 @@ The new recruits blended in well.
 
 They were as full of life and strength as his seasoned wolves. They found a natural harmony with their new packmates. And they brought so much of their own vibrance and knowledge to the pack.
 
-xEEVEEx had made a great decision bringing them in. He was proud of them. He was proud of his pack. 
+xEEVEEx had made a great decision bringing them in. WarWolff was proud of them. He was proud of his pack. 
 
 He was proud of xEEVEEx.
 
