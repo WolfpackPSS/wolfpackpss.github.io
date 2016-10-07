@@ -101,9 +101,9 @@ No longer would they be cast-out. Disbanded.
 No longer would they be alone.  
 &nbsp; 
 
-xEEVEEx was proud of his new packmates. Each of them smiling in return. He turned, about to resume his place in line, when WarWolff stopped him.
+xEEVEEx was proud of his new packmates. Each of them smiling in return. He turned, about to resume his place in line, when WarWolff stopped him. A hand against his shoulder.
 
-"Halt." WarWolff gave him a stern look.
+WarWolff gave him a stern look.
 
 xEEVEEx faltered. Uncertain. 
 
