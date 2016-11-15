@@ -216,9 +216,7 @@ An explosion in the lower reactor jarred Qtarsis back to the present.
 
 His crewmates were dead. Their bodies littered around the ship. Jessica in his arms. Looking upwards. Gulping for air. 
 
-The enemy Masonobu continued pounding his hull with heavy fire.
-
-"Wolfpack. I will not fail."  
+The enemy Masonobu continued pounding his hull with heavy fire.  
 &nbsp;
 
 Something stirred inside Qtarsis. It was quiet at first, but it slowly increased in volume.
