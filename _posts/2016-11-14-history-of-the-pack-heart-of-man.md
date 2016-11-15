@@ -9,8 +9,8 @@ ArchNadeom, Keeper Of Records.<br>Qtarsis, Hunter.<br>Stardate #280.
 ------------------------------------------------
 &nbsp; 
 
-Beauty is mysterious as well as terrible. God and the devil are fighting there, and the battlefield is the heart of man. 
-―-Fyodor Dostoevsky, The Brothers Karamazov  
+Beauty is mysterious as well as terrible. God and the devil are fighting there, and the battlefield is the heart of man.  
+\―\-Fyodor Dostoevsky, The Brothers Karamazov  
 &nbsp;
 
 Death does not arrive with words of parting.
