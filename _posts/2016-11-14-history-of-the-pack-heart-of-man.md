@@ -5,9 +5,7 @@ date: 2016-11-14
 tags: english
 category: archivist
 ---
-ArchNadeom, Keeper Of Records.<br>
-Qtarsis, Hunter.<br>
-Stardate #280.
+ArchNadeom, Keeper Of Records.<br>Qtarsis, Hunter.<br>Stardate #280.
 ------------------------------------------------
 &nbsp; 
 
@@ -277,24 +275,6 @@ The darker the night, the brighter the stars."
 
 
 [^1]: Apollon Maykov, untitled poem (1878)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
