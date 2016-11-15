@@ -28,7 +28,7 @@ Male Nurse on the floor of the reactor. His hands clutched around his throat.
 
 Roborob and Rocky had boarded the enemy vessel, but their comms had gone silent.
 
-The cannon battery was a slaughter. Most of the crew had rushed there. In a desparate attempt to patch (repair) the hull and thwart incoming fire.
+The cannon battery was a slaughter. Most of the crew had rushed there. In a desparate attempt to patch the hull and thwart incoming fire.
 
 Visiri  
 Tomas  
@@ -44,13 +44,13 @@ Now Jessica was dying too. Her pupils unfocused. Her eyes wild with terror. Figh
 Qtarsis held her in his arms. Helpless.  
 &nbsp;
 
-Another barrage of enemy fire wracked the hull. It would only be a matter of time before he joined his crew as well.
+Another barrage of enemy fire wracked the hull. 
 
-He looked out the observation window on the enemy ship. Masonobu of Clan Zaki. Former brother-in-arms.
+It would only be a matter of time before he joined his crew as well. He looked out the observation window on the enemy ship. Masonobu of Clan Zaki. Former brother-in-arms.
 
-Clan Zaki who had been his home. 
-Clan Zaki who sold their honor. 
-Clan Zaki who now murdered his crew. 
+Clan Zaki who had been his home.  
+Clan Zaki who sold their honor.  
+Clan Zaki who now murdered his crew.  
 
 Qtarsis' eyes burned red.  
 &nbsp;
