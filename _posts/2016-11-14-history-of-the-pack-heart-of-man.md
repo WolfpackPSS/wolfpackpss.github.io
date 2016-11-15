@@ -178,7 +178,7 @@ Ha! Jessica lowered her hand blaster.
 
 She had been pursuing a lead on a buyer whose slaves had been mysteriously disappearing, which led her here to Satellite 16.
 
-Once Qtarsis became aware of the type of research they were conducting, he knew Wolfpack would want no part of it. Neither for its findings, nor the butchery that had furnished them. No one would.
+Once Qtarsis became aware of the type of research they were conducting, he knew Wolfpack would want no part of it. Neither for its findings, nor the butchery that had furthered its discoveries. No one would.
 
 He and Jessica rounded up what captives they could and rigged the station with thermal detonators. Set to blow the moment they departed.  
 &nbsp;
