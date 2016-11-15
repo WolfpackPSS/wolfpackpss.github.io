@@ -163,9 +163,9 @@ She flew a pirate ship called The Liberator. She was infamous for attacking slav
 
 Her crew consisted of three Visiri Capt'ns. 
 
-Reformed slavers. Hard men. They fought to reclaim their self-honor aboard her ship.
+They were reformed slavers. Hard men. They fought to reclaim their self-honor aboard her ship.
 
-Jessica had a piercing gaze. She could measure the mettle of a man over how he responded while held at gunpoint.
+Jessica had a piercing gaze. She could measure the mettle of a man over how he responded while being held at gunpoint.
 
 Any slavers, who genuinely wished to repent of their misdeeds after their ship had been destroyed, were welcome among her crew. Any who did not, were welcome out the airlock.  
 &nbsp;
@@ -196,7 +196,9 @@ When they flew into Wolfpack space, Qtarsis had not thought what to expect. What
 
 Wolfpack was arrayed for war.
 
-Their black warships floated heavily across space. Bristling with armament. Dark. Dangerous. Menacing.  
+Their black warships floated heavily across space. Bristling with armament. 
+
+Dark. Dangerous. Menacing.  
 &nbsp;
 
 Qtarsis pledged his oath of loyalty to Wolfpack. The words were grim. 
@@ -239,9 +241,9 @@ Full of energy and power.
 His voice, loud with song, reverberated throughout the hull.  
 &nbsp;
 
-Qtarsis (He) stood and walked to the plasma cannon.
+Qtarsis stood and walked to the plasma cannon.
 
-He tore open the side panel with bare fingers and ripped out the power conduit connecting it to the main reactor. He tore open the panel of the auxiliary laser, and thrust the detached power line, now sparking in his hand, into the secondary outlet.
+He tore open the side panel with bare fingers and ripped out the power conduit connecting it to the main reactor. He tore open the panel of the auxiliary laser and thrust the detached power line, now sparking in his hand, into the secondary outlet.
 
 Crackles of electricity arced around Qtarsis. 
 
