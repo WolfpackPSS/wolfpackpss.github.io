@@ -28,7 +28,7 @@ Male Nurse on the floor of the reactor. His hands clutched around his throat.
 
 Roborob and Rocky had boarded the enemy vessel, but their comms had gone silent.
 
-The cannon battery was a slaughter. Most of the crew had rushed there. In a desparate attempt to patch the hull and thwart incoming fire.
+The cannon battery was a slaughter. Most of the crew had rushed there. In a desperate attempt to patch the hull and thwart incoming fire.
 
 Visiri  
 Tomas  
@@ -39,7 +39,9 @@ Verunus
 All dead.  
 &nbsp;
 
-Now Jessica was dying too. Her pupils unfocused. Her eyes wild with terror. Fighting for every last breath.
+Now Jessica was dying too. 
+
+Her pupils unfocused. Her eyes wild with terror. Fighting for every last breath.
 
 Qtarsis held her in his arms. Helpless.  
 &nbsp;
@@ -59,7 +61,7 @@ He was an exile of the Sushi Wars.
 
 When Clan Zaki had pawned out their top ships with the other great alliances, to join Sushi Train and overthrow the S.Q.U.I.D. WarFleet, Qtarsis found himself abandoned.
 
-He walked the corridors and hub centers of the once bustling Zaki starport. Deserted. 
+He walked the corridors and hub centers of the once bustling Zaki star port. Deserted. 
 
 He checked the docks and moorings for their ship leaders. Empty. 
 
@@ -183,7 +185,7 @@ It would become a lasting partnership.
 
 Qtarsis spoke with no small disdain of the Sushi Wars, or the slave trade that was being fueled by its devastation. When he discussed Wolfpack and his intent to ally with them, Jessica offered to join as well.
 
-They dropped off the released captives at the next free tradeport. Most were too debilitated or too far gone mentally to be of use aboard a starship.
+They dropped off the released captives at the next free trade port. Most were too debilitated or too far gone mentally to be of use aboard a starship.
 
 But one proved able-bodied. And anxious to redeem himself against his aggressors. Roborob.
 
@@ -262,9 +264,9 @@ Only war makes us enemies."
 
 Qtarsis pulled himself along the floor and propped himself up beside Jessica. 
 
-He leaned against her. Their arms touching shoulder to shoulder. Her lifeless eyes staring blankly on their last victory together (her last victory / retribution).
+He leaned against her. Their arms touching shoulder to shoulder. Her lifeless eyes staring blankly on their last victory together.
 
-As the smoldering ship of Masonobu sunk out of view /(below the viewing window), Qtarsis shared with her in one last gaze /(one last gaze with her). Looking out the observation window. Across the glittering canvas of space.
+As the smoldering ship of Masonobu sunk out of view, Qtarsis shared with her in one last gaze. Looking out the observation window. Across the glittering canvas of space.
 
 "Чем ночь темней, тем ярче звезды. [^1]
 
