@@ -106,7 +106,7 @@ With her numerous breakthroughs and the rapid improvements she was making toward
 
 She proceeded immediately into human experimentation. 
 
-Working around the clock, she cycled through multiple test subjects to perfect her design. Captives she had purchased from the slave market, a trade now thriving with the disfranchised of war. Indentured. Unwilling. Disposable for the mere fact that their lives were now measured in currency.
+Working around the clock, she cycled through multiple test subjects to perfect her design. Captives she had purchased from a slave market thriving on the disfranchised of war. Indentured. Unwilling. Disposable for the mere fact that their lives were now measured in currency.
 
 Dr. Sera promised that what value life had stripped from them, their deaths would go towards rewarding a higher scientific pursuit.
 
