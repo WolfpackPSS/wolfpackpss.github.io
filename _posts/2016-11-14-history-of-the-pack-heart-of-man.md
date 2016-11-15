@@ -183,7 +183,7 @@ Once Qtarsis became aware of the type of research they were conducting, he knew 
 He and Jessica rounded up what captives they could and rigged the station with thermal detonators. Set to blow the moment they departed.  
 &nbsp;
 
-It would become a lasting partnership.
+Their's would become a lasting partnership.
 
 Qtarsis spoke with no small disdain of the Sushi Wars, or the slave trade that was being fueled by its devastation. When he discussed Wolfpack and his intent to ally with them, Jessica offered to join as well.
 
