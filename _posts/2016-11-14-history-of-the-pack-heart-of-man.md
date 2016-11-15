@@ -48,7 +48,9 @@ Qtarsis held her in his arms. Helpless.
 
 Another barrage of enemy fire wracked the hull. 
 
-It would only be a matter of time before he joined his crew as well. He looked out the observation window on the enemy ship. Masonobu of Clan Zaki. Former brother-in-arms.
+It would only be a matter of time before he joined his crew as well. He looked out the observation window on the enemy ship. 
+
+Masonobu of Clan Zaki. Former brother-in-arms.
 
 Clan Zaki who had been his home.  
 Clan Zaki who sold their honor.  
