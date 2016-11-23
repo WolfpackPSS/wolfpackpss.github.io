@@ -227,7 +227,7 @@ He turned on his heel and walked away. The flickering torchlight receded with hi
 
 "Captain on the bridge"
 
-Gnasher swept his fur cloak over his shoulder and sat down hard in the captain's chair.
+Gnasher swept his fur cloak over one shoulder and sat down hard in the captain's chair.
 
 ButHow was no hapless fly in a spider's web.
 
