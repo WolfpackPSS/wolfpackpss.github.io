@@ -48,7 +48,7 @@ Gnasher did ButHow a courtesy and ignored the question.
 "What is it all for?"  
 &nbsp; 
 
-ButHow paused to consider the question, "I see you and I have been thinking along the same lines. It is the reason that I asked to meet with you. 
+ButHow paused to consider the question, "I see you and I have been thinking along the same line. It is the reason that I asked to meet with you. 
 
 "Were we younger and wiser, we would have chosen more profitable careers in these times of conflict. Such as ship builders or weapons manufacturers.
 
