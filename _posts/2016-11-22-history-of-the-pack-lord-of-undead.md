@@ -147,7 +147,7 @@ The stone facade covered a steel hull. Gnasher's ship was no less impenetrable t
 
 Gnasher stopped at a heavy door set in the wall.
 
-The strange scratching sound that had been echoing down the hallway came from the other side of this door.
+The strange scratching noise that had been echoing down the hallway came from the other side of this door.
 
 ButHow felt a chill run up his spine.  
 &nbsp; 
