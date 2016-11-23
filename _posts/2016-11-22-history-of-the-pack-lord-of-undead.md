@@ -115,7 +115,7 @@ A strange scratching noise could be heard in the distance.
 
 ButHow hesitated.
 
-"Perhaps we should return. My crew may grow anxious over my absence. I told them I would not be gone long..."   
+"Perhaps we should return. My crew may grow anxious over my absence. I told them I would not be gone long...."   
 &nbsp; 
 
 Gnasher stopped and raised an eyebrow.
