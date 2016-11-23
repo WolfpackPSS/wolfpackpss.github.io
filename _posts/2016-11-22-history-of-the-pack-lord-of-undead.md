@@ -129,9 +129,7 @@ Gnasher looked at him more significantly, "Who would join such an alliance?"
 
 ButHow gulped. 
 
-He could not report back in failure to acquire a new ally because he could not control his fear.
-
-It was just a dark corridor. Nothing more.
+He could not report back in failure to acquire a new ally because he could not control his fear. It was just a dark corridor. Nothing more.
 
 He lifted his chin and proceeded down the hall.  
 &nbsp; 
