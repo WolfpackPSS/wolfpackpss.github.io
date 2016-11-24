@@ -97,7 +97,7 @@ Gnasher bowed his head thoughtfully, then stood from the table.
 
 Gnasher pulled back one of the drapes to reveal a winding staircase that led down.
 
-A cold wind blew up from below, wrapping itself caressingly around the curves. ButHow could see a faint light around the bend, presumably from the bottom of the staircase.
+A cold wind blew up from below, wrapping itself caressingly around them. ButHow could see a faint light around the bend, reaching up from the bottom of the staircase.
 
 "Please, after you," Gnasher said to his guest.  
 &nbsp; 
