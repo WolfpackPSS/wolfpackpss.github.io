@@ -12,11 +12,11 @@ ArchNadeom, Keeper Of Records.<br>Stardate #291.
 ![PackHist022_Gnasher_01](/assets/img/archivist/PackHist022_Gnasher_01.PNG "Gnasher quote")  
 &nbsp; 
 
-"Will you step into my parlour?"
+"Will you step into my parlor?"
 
 Gnasher met ButHow at the docking hatch. 
 
-He cut an imposing figure, standing against the dark interior of his ship. He wore a heavy fur cloak over a steel chestplate. The metal was embellished with flames along the bottom and hands stretching upwards. 
+He cut an imposing figure, standing against the dark interior of his ship. He wore a heavy fur cloak over a steel chest plate. The metal was embellished with flames along the bottom and hands stretching upwards. 
 
 ButHow was dressed in formal uniform. Belt. Buttons. Buckles. Hat under his arm. And proudly on his sleeve, an emblem of his alliance, the Elder Drivers.
 
@@ -25,7 +25,7 @@ Gnasher cast his cloak off one shoulder and displayed the battle insignia on his
 
 "Please, make yourself comfortable," Gnasher gestured toward a chair at the end of the table. "May I offer you wine?"
 
-The room was lit in candlelight. Red heavy drapes hung from the ceiling and walls. Above the mantleplace stood a large mirror, ornately framed with gold filigree.
+The room was lit in candlelight. Red heavy drapes hung from the ceiling and walls. Above the mantle place stood a large mirror, ornately framed with gold filigree.
 
 "Uh yes, thank you," ButHow seated himself comfortably in the rich satin cushion. "I hear you were recently promoted to Wolf Lord. Congratulations, captain. That is not a commission that could have been easily earned. Certainly not without friends."
 
@@ -43,7 +43,7 @@ Gnasher did ButHow a courtesy and ignored the question.
 
 "A thought has been plaguing my mind since your first communique," Gnasher said, seguing the discussion. "What do we fight for, you and I? Certainly for our alliances. You for the Elder Drivers. I for Wolfpack.
 
-"But what do we gain by our warfare against each other? You expand your borders into our territory. We encroach on your space in return. You attack our transports for gas and minerals. We attack your's. You destroy our ships. We rebuild those ships and then retaliate against your's....
+"But what do we gain by our warfare against each other? You expand your borders into our territory. We encroach on your space in return. You attack our transports for gas and minerals. We attack yours. You destroy our ships. We rebuild those ships and then retaliate against yours....
 
 "What is it all for?"  
 &nbsp; 
@@ -70,7 +70,7 @@ Gnasher spoke.
 
 "I am familiar of a strategy of the Elder Drivers. 
 
-"To bulster the ranks of another alliance, pushing out less powerful but more loyal ships, to clear room for themselves. And then abandoning that alliance at their hour of need and leaving them that much weaker than before. 
+"To bolster the ranks of another alliance, pushing out less powerful but more loyal ships, to clear room for themselves. And then abandoning that alliance at their hour of need and leaving them that much weaker than before. 
 
 "Such I have witnessed at your hands against the S.Q.U.I.D. WarFleet during the Sushi Wars. It was a clever move to topple the once proud empire."
 
@@ -83,7 +83,7 @@ Gnasher continued.
 
 "For having witnessed such a ploy, Wolfpack would never allow ships once loyal to the Elder Drivers to join its ranks.
 
-"And so your proposal is not to join me in my alliance, but that I join you among your's. For profit."
+"And so your proposal is not to join me in my alliance, but that I join you among yours. For profit."
 
 ButHow nodded his head in agreement, "As you say, it is so."  
 &nbsp; 
@@ -136,7 +136,7 @@ He lifted his chin and proceeded down the hall.
 
 The resemblance of the ship's interior to a dark castle was uncanny. 
 
-First the richly furnhished parlour. Then the wooden staircase and cobwebs. And now even the cool air rising off the stones of the floors and walls. 
+First the richly furnished parlor. Then the wooden staircase and cobwebs. And now even the cool air rising off the stones of the floors and walls. 
 
 The interior was fabricated for effect. 
 
@@ -211,7 +211,7 @@ It was the only move O could make to stop the Xs from getting three in a row. It
 
 But Gnasher was not stupid. He would not make such an obvious mistake.
 
-There were no moves now that would not end in a stalmate.
+There were no moves now that would not end in a stalemate.
 
 Gnasher wiped the game away furiously. He could really be a sore loser.  
 &nbsp; 
@@ -220,7 +220,7 @@ The wild pounding against the door slowly began to fade.
 
 "Well ButHow, it has been fun, but I'm afraid I must go. Maybe we can have dessert later, after I blow up your ship. Let's say around ATE o'clock?"
 
-Gnasher howled throatily. Chortling with laugther, "ATE o-clock? Really? I crack myself up!"
+Gnasher howled throatily. Chortling with laughter, "ATE o-clock? Really? I crack myself up!"
 
 He turned on his heel and walked away. The flickering torchlight receded with him down the hall, as his laughter echoed madly over the quiet sounds of munching.  
 &nbsp; 
