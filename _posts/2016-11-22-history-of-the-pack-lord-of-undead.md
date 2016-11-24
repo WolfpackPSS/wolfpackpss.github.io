@@ -41,7 +41,7 @@ One does not broach the topic of betrayal by asking toward the relations of the 
 Gnasher did ButHow a courtesy and ignored the question.  
 &nbsp; 
 
-"A thought has been plaguing my mind since your first communique," Gnasher said, seguing the discussion. "What do we fight for, you and I? Certainly for our alliances. You for the Elder Drivers. I for Wolfpack.
+"A thought has been plaguing my mind since your first communique," Gnasher said, seguing the conversation. "What do we fight for, you and I? Certainly for our alliances. You for the Elder Drivers. I for Wolfpack.
 
 "But what do we gain by our warfare against each other? You expand your borders into our territory. We encroach on your space in return. You attack our transports for gas and minerals. We attack yours. You destroy our ships. We rebuild those ships and then retaliate against yours....
 
