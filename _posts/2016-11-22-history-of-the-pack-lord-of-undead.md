@@ -134,7 +134,7 @@ He could not report back in failure to acquire a new ally because he could not c
 He lifted his chin and proceeded down the hall.  
 &nbsp; 
 
-The resemblance of the ship's interior to a dark castle was uncanny. 
+The resemblance of the ship's interior to a dark castle was unnerving. 
 
 First the richly furnished parlor. Then the wooden staircase and cobwebs. And now even the cool air rising off the stones of the floors and walls. 
 
