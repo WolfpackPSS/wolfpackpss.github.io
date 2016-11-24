@@ -138,10 +138,6 @@ The resemblance of the ship's interior to a dark castle was unnerving.
 
 First the richly furnished parlor. Then the wooden staircase and cobwebs. And now even the cool air rising off the stones of the floors and walls. 
 
-The interior was fabricated for effect. 
-
-Furnishings could be replicated from any sales catalogue of the early 20th century. Cobwebs from any pre-interstellar horror film.
-
 The stone facade covered a steel hull. Gnasher's ship was no less impenetrable than any other class 10 ship. But the similarity of its interior to a dark haunting castle was chilling.  
 &nbsp; 
 
