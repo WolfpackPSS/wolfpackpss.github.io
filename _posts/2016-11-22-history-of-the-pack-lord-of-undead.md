@@ -72,7 +72,7 @@ Gnasher spoke.
 
 "To bolster the ranks of another alliance, pushing out less powerful but more loyal ships, to clear room for themselves. And then abandoning that alliance at their hour of need and leaving them that much weaker than before. 
 
-"Such I have witnessed at your hands against the S.Q.U.I.D. WarFleet during the Sushi Wars. It was a clever move to topple the once proud empire."
+"Such I have witnessed at the hands of your alliance against the S.Q.U.I.D. WarFleet during the Sushi Wars. It was a clever move to topple the once proud empire."
 
 ButHow beamed. At both the apparent compliment and cunning deception.  
 &nbsp; 
