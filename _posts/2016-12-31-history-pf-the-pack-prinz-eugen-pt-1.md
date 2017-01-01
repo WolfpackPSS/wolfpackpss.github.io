@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pack History &#35;25 <br><i>The Trial And Sentencing Of Prinz&#95;Eugen, pt. 1</i>
+title: Pack History &#35;25 <br><i>The Trial And Sentencing Of Prinz&#95;Eugen, pt. 1&#58; Xin</i>
 date: 2016-12-31
 tags: english
 category: archivist
@@ -9,9 +9,9 @@ ArchNadeom, Keeper Of Records.<br>Stardate #340.
 ------------------------------------------------
 &nbsp; 
 
-The trial was presided over by the honorary Gymnasiarch and Master of Games, known simply as Xin. Justice Pro Tem.
+The trial was presided over by the honorary Xin. Gymnasiarch and Master of Games. Justice Pro Tem.
 
-A trial of this magnitude was unheard of. The charges for war crimes were unprecedented. That there could be a crime greater than the widespread destruction and wholesale slaughter of war was unthinkable.  
+A trial of this magnitude was unheard of. The charges for war crimes were unprecedented. That there could be a crime greater than the wholesale destruction and mass slaughter of war was unthinkable.  
 &nbsp; 
 
 This was not a trial in any conventional sense.
@@ -54,11 +54,12 @@ Xin would rule over the case with undisputed authority.
 And for his service towards justice, he would be reviled with uninhibited and universal loathing.  
 &nbsp; 
 
-What would be decided here was not just the judgment of one man. What was to be (would be) decided <here> was what would be the honorable and accepted practices for all future engagements of war. 
+What would be decided here was not just the judgment of one man. What was to be decided was what would be the honorable and accepted practices for all future engagements of war. 
 
-And how <severely> any crimes of war would be judged, whether or not (regardless of whether) that crime was defined by law /(it was a crime defined by law / regardless of how loosely that crime was defined by law).
+And how any crimes of war would be judged, whether or not that crime was defined by law.
 
 There would be no heroes here.
+
 
 
 
