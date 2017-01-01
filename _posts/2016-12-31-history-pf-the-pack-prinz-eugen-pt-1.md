@@ -23,14 +23,12 @@ There was not even an existing framework by which a judicial body could hold a t
 
 Xin was the closest thing to a neutral party that could be found.
 
-He was the directing voice behind the leading ship and weapons manufacturer in the galaxy. Hailed by some as a technological savant, whose innovations had revolutionized the art of ship operations and interstellar conflict. But by others, he was seen as a wartime profiteer. 
+He was the directing voice behind the largest ship and weapons manufacturer in the galaxy. Hailed by some as a technological savant, whose innovations had revolutionized the art of ship operations and interstellar conflict. But by others, he was viewed as a wartime profiteer. 
 
-His company brand was known by name: SavySoda.  
+The brand of his company was known by name: SavySoda.  
 &nbsp; 
 
-Xin was not an appointed judge. It was not a title he would have ever chosen to aspire to.
-
-It was a duty bestowed upon him when the accused party was unceremoniously dumped on his doorstep.
+Xin was not an appointed judge. It was not a title he would have ever chosen to aspire to. It was a duty bestowed upon him when the accused party was unceremoniously dumped on his doorstep.
 
 Xin had never sat in deliberation over the guilt or innocence of another man. He had never weighed opposing arguments or contradictory statements. He had no way of proving the truth or validity of any substantiated claims or corroborating evidence.
 
@@ -51,12 +49,10 @@ There was not a soul in the galaxy who had not already formed their own convicti
 
 Xin would rule over the case with undisputed authority. 
 
-And for his service towards justice, he would be reviled with uninhibited and universal loathing.  
+And for that service, he would be met with universal loathing.  
 &nbsp; 
 
-What would be decided here was not just the judgment of one man. What was to be decided was what would be the honorable and accepted practices for all future engagements of war. 
-
-And how any crimes of war would be judged, whether or not that crime was defined by law.
+What would be decided here was not just the judgment of one man. What was to be decided would be the legal ramifications for all future engagements of war. And how any crimes of war would be judged, whether or not that crime was defined by law.
 
 There would be no heroes here.
 
