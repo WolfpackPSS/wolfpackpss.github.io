@@ -1,6 +1,3 @@
-/* =======================
- * basic
- * ======================= */
 * {
   -webkit-box-sizing: border-box;
   -moz-box-sizing: border-box;
@@ -305,6 +302,9 @@ img {
   line-height: 20px;
   text-decoration: none;
   color: #000;
+  -webkit-box-sizing: border-box;
+  -moz-box-sizing: border-box;
+  box-sizing: border-box;
 }
 
 .post-archive-iterm:before {
