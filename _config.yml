@@ -1,9 +1,8 @@
-title: Wolfpack Alliance
+title: [Wolfpack Alliance]
 description: Legendary Alliance in PixelStarships - a Mobile Sci-Fi MMO Game
 url: http://wolfpackpss.github.io
 avatar: /assets/img/wolfpack_icon.png
 favicon: /assets/img/favicon.ico
 google_analytics: UA-73339041-2
 disqus_shortname: wolfpackpss
-
-    
+markdown: kramdown
