@@ -5,7 +5,7 @@ date: 2016-12-31
 tags: english
 category: archivist
 ---
-ArchNadeom, Keeper Of Records.<br>Stardate #340.
+ArchNadeom, Keeper Of Records.<br>Stardate #330.
 ------------------------------------------------
 &nbsp; 
 
@@ -56,6 +56,8 @@ What would be decided here was not just the judgment of one man. What was to be 
 
 There would be no heroes here.
 
+
+![PackHist025_Prinz_Eugen_Pt1](/assets/img/archivist/PackHist025_Prinz_Eugen_Pt1.JPG "Official investigation")  
 
 
 
