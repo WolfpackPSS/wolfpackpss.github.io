@@ -21,7 +21,7 @@ The ceiling was domed. The smooth planed surface still showed scarring where the
 Tiered seating rose upwards from the center of the room in concentric circles like the Roman Colosseum.  
 &nbsp; 
 
-Xin entered the court from the only door in the room. 
+Xin entered the court from the only door in the chamber. 
 
 His appearance was atypical of the orderly fastidiousness you would expect from someone about to measure out justice. 
 
@@ -50,7 +50,7 @@ Each captain was reserved their own individual projector.
 They would appear in the courtroom as a hologram. And observe the trial through a connected swivel camera, that would relay the feed to a VR headset back on their ship.  
 &nbsp; 
 
-There was nothing special about the VR technology. 
+There was nothing special about the Virtual Reality technology. 
 
 It was ancient tech that predated space travel. Back when bipedal lifeforms were still planetbound. And still used words like "fast" when talking about their cute little land-skimmers.  
 &nbsp; 
@@ -77,7 +77,7 @@ Mirrors were used to control the pathes of the beams, while a diverging lense wo
 
 It was the interference between the two beams that was actually captured by the holographic film. 
 
-When a light of identical wavelengths was cast through the film, it projected a hologram. Three-dimensionally recreating the subject, as recorded by the interference of the two beams.  
+When a light of identical wavelengths was cast through the film, it projected as a hologram. Three-dimensionally recreating the subject, as recorded by the interference of the two beams.  
 &nbsp; 
 
 The size of the laser and amount of power required to holographically record a live person was tremendous.
@@ -200,17 +200,17 @@ Xin looked around the courtroom. At each of his onhand staff.
 
 Yusi and Eric on holographic imaging.  
 Meng, external turret and ship defense.  
-Hai, internal security and detailing guards.  
+Hai, internal security and detailing of guards.  
 Thomas, technology and architecture.  
 
 Moonsailor and Vivien on holo-communication.  
 Sergei, electronic synthesizer.  
-Rob, independent legal advisory.  
+Rob, independent legal advisor.  
 &nbsp; 
 
 They had planned for this hearing together. Preparing for any and all contingencies. 
 
-Xin made eye contact with each of them. Acquiring visual confirmation from each that they understood their individual reponsibilities and were ready to proceed with this tribunal.
+Xin made eye contact with each of them. Acquiring visual confirmation from each that they understood their reponsibilities and were ready to proceed with this tribunal.
 
 Then Xin looked gravely at the barred door.
 
