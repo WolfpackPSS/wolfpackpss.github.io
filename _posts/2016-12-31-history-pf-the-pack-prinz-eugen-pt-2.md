@@ -77,7 +77,7 @@ Mirrors were used to control the pathes of the beams, while a diverging lense wo
 
 It was the interference between the two beams that was actually captured by the holographic film. 
 
-When a light of identical wavelengths was cast through the film, it projected a hologram. Three-dimensionally recreating the subject, as recorded by the interference of those two beams.  
+When a light of identical wavelengths was cast through the film, it projected a hologram. Three-dimensionally recreating the subject, as recorded by the interference of the two beams.  
 &nbsp; 
 
 The size of the laser and amount of power required to holographically record a live person was tremendous.
@@ -111,12 +111,12 @@ There appeared to be a problem with one of the projections. The hologram of Vlad
 
 Yusi whacked the projector on the side with his hand. 
 
-The hologram flickered and then rearticulated, before correctly displaying all of Vlad's personas. Stacked side-by-side and one on top of the other. Perfectly replicated, but each moving with its own unique personality and individual autonomy.  
+The hologram flickered and then rearticulated, before correctly displaying all of Vlad's personas. Neatly stacked side-by-side and one on top of the other. Perfectly replicated, but each moving with its own unique personality and individual autonomy.  
 &nbsp; 
 
-Hologram reservations were restricted to officers of the top alliances. Even with holograph technology, there was only so much room in the amphitheater.
+Hologram reservations were restricted to officers of the top alliances. Even with holographic technology, there was only so much room in the amphitheater.
 
-Almost all of Wolfpack's (the pack) officers were present. Almost.
+Almost all of Wolfpack's officers were present. Almost.
 
 Our newest S.Q.U.I.D. recruits had grown nostaligic for their departed home and left to reform the proud S.Q.U.I.D. WarFleet. 
 
@@ -132,7 +132,9 @@ Dan_the_man181
 Nightlane  
 &nbsp; 
 
-I looked over our own officers in Wolfpack. Heavy fur cloaks. Dark glittering eyes. Grizzled. Dangerous.
+I looked over our own officers in Wolfpack. 
+
+Heavy fur cloaks. Dark glittering eyes. Grizzled. Dangerous.
 
 I paused over the two empty spots next to me. Hyten. Seq.
 
@@ -169,15 +171,15 @@ Leaving behind an empty spot where once fritz had been.
 
 Gnasher's eyes flashed, but then he leaned back in his chair. 
 
-He had already thought ahead through every possible scenario and determined the most likely outcome. It would not require his intervention.  
+He had already thought ahead toward every possible scenario and determined the most likely outcome. It would not require his intervention.  
 &nbsp; 
 
 
 WarWolff looked across the courtroom and subtly shook his head. 
 
-One of our newest officers, Blood Rain NZ, had managed to infiltrate the court and disguise himself among the present guards. 
+One of our newest officers, Blood Rain NZ, had managed to infiltrate the court and disguise himself among the guards present. 
 
-Under the collar of his uniform, I could just make out the inked tattoo of a line circling his neck with blood dripping down. As if his head had been cut off and then placed back on his neck. For reasons yet to be disclosed, Wolfpack knew the coordinates of the trial's hidden location.
+Under the collar of his uniform, I could just make out the inked tattoo of a line circling his neck with blood dripping down. As if his head had been cut off and then replaced back on his neck. For reasons yet to be disclosed, Wolfpack knew the coordinates of the trial's hidden location.
 
 Upon hearing the verbal offense, Blood Rain NZ took a menacing step towards the bench. 
 
@@ -194,7 +196,7 @@ I lifted my head to Xin and carefully nodded. Agreeing to his terms.
 xEEVEEx, Sumara, and I resumed our places among the pack.  
 &nbsp; 
 
-Xin looked around the courtroom at each of his onhand staff. 
+Xin looked around the courtroom. At each of his onhand staff. 
 
 Yusi and Eric on holographic imaging.  
 Meng, external turret and ship defense.  
