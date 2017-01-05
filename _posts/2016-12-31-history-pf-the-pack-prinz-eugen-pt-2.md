@@ -36,10 +36,7 @@ A pretense once underestimated, would later come to regret.
 "You may be seated."  
 &nbsp; 
 
-To maintain security of the trial, the location of the courtroom was kept secret. 
-
-The only people present at the hearing were SavySoda staff, guards, prosecutor, defense counsel, and the accused.  
-&nbsp; 
+To maintain security of the trial, the location of the courtroom was kept secret. Only SavySoda staff, guards, prosecutor, defense counsel, and the accused were present.
 
 Captains of the various alliances would be permitted to attend only as holograms. 
 
