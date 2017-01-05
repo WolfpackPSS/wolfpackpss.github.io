@@ -171,7 +171,7 @@ Leaving behind an empty spot where once fritz had been.
 
 Gnasher's eyes flashed, but then he leaned back in his chair. 
 
-He had already thought ahead toward every possible scenario and determined the most likely outcome. It would not require his intervention.  
+He had already calculated every possible scenario and determined the most likely outcome. It would not require his intervention.  
 &nbsp; 
 
 
