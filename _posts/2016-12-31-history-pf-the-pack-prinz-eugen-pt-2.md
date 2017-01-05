@@ -200,7 +200,7 @@ Xin looked around the courtroom. At each of his onhand staff.
 
 Yusi and Eric on holographic imaging.  
 Meng, external turret and ship defense.  
-Hai, internal security and detailing of guards.  
+Hai, internal security and detailing of the guards.  
 Thomas, technology and architecture.  
 
 Moonsailor and Vivien on holo-communication.  
