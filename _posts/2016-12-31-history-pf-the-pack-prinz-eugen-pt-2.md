@@ -150,7 +150,7 @@ I frowned, not glad of the attention. Then stood, "I am, your Honor."
 
 I scowled as I looked around the courtroom, "By impartial, I assume you mean with the same negligence that you license captains to abuse your starships?"
 
-"Don't mince words with me, Wolf. I am familiar with your writing and have read your chronicles. I will not have you use this hearing to further your pack's propaganda. You will either agree to write impartially or I will remove you from these proceedings."  
+"Don't mince words with me, Wolf. I have read your chronicles and am familiar with your writing. I will not have you use this hearing to further your pack's propaganda. You will either agree to write impartially or I will remove you from these proceedings."  
 &nbsp; 
 
 I growled under my breath. Wolfpack responded.
