@@ -38,7 +38,7 @@ A pretense once underestimated, would later come to regret.
 
 To maintain security of the trial, the location of the courtroom was kept secret. 
 
-The only people present at the actual hearing were SavySoda staff, guards, prosecutor, defense counsel, and the accused.  
+The only people present at the hearing were SavySoda staff, guards, prosecutor, defense counsel, and the accused.  
 &nbsp; 
 
 Captains of the various alliances would be permitted to attend only as holograms. 
@@ -109,7 +109,7 @@ Yusi checked the calibration of the projectors in the courtroom. Both he and Eri
 
 There appeared to be a problem with one of the projections. The hologram of VladTheBad of Pillaging Scourge kept appearing in odd overlapping layers.
 
-Yusi whacked the projector on the side with his hand. 
+Yusi whacked the projector with his hand. 
 
 The hologram flickered and then rearticulated, before correctly displaying all of Vlad's personas. Neatly stacked side-by-side and one on top of the other. Perfectly replicated, but each moving with its own unique personality and individual autonomy.  
 &nbsp; 
