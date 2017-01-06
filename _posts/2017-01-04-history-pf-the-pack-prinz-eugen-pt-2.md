@@ -174,13 +174,13 @@ He had already calculated every possible scenario and determined the most likely
 
 WarWolff looked across the courtroom and subtly shook his head. 
 
-One of our newest officers, Blood Rain NZ, had managed to infiltrate the court and disguise himself among the guards present. 
+One of our newest officers, Blood Rain NZ, had managed to infiltrate the court and disguise herself among the guards present. 
 
-Under the collar of his uniform, I could just make out the inked tattoo of a line circling his neck with blood dripping down. As if his head had been cut off and then replaced back on his neck. For reasons yet to be disclosed, Wolfpack knew the coordinates of the trial's hidden location.
+Under the collar of her uniform, I could just make out the inked tattoo of a line circling her neck with blood dripping down. As if her head had been cut off and then replaced back on her neck. For reasons yet to be disclosed, Wolfpack knew the coordinates of the trial's hidden location.
 
 Upon hearing the verbal offense, Blood Rain NZ took a menacing step towards the bench. 
 
-He stopped at WarWolff's indication. Visibly restraining himself. Before stepping back in line to resume his subterfuge among the court guard.  
+She stopped at WarWolff's indication. Visibly restraining herself. Before stepping back in line to resume her subterfuge among the court guard.  
 &nbsp; 
 
 WarWolff then looked over his shoulder and nodded at both Machiel and \_sharky\_. 
