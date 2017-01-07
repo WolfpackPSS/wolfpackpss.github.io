@@ -214,7 +214,7 @@ Then Xin looked gravely at the barred door.
 "Send in the accused."
 
 
-
+![PackHist026_Prinz_Eugen_Pt2](/assets/img/archivist/PackHist026_Prinz_Eugen_Pt2.png "Holo-Chamber")  
 
 
 
