@@ -11,7 +11,7 @@ ArchNadeom, Keeper Of Records.<br>Stardate #330.
 
 Caxy of Wolfpack entered when the doors opened. 
 
-A heavy battleaxe slung across his shoulder. Its vibro-force blades glowing a bright and deadly blue.  
+A heavy battle-axe slung across his shoulder. Its vibro-force blades glowing a bright and deadly blue.  
 &nbsp; 
 
 "Halt!" One of the guards shouted, stopping him at the door, "Weapons are not permitted here."
@@ -33,7 +33,7 @@ Conflicting howls of cheers and catcalls clashed painfully against each other. F
 
 "SILENCE!" Xin yelled. Slamming his fist down and hitting a pressure switch.
 
-The voice output of every hologram in the room was immediately cut. Dropping the court into an eery pantomime of its self.
+The voice output of every hologram in the room was immediately cut. Dropping the court into an eerie pantomime of its self.
 
 Captains stood on the seats of their chairs. Faces contorted with rage. Mouthing violent, angry screams. But no words coming out.
 
