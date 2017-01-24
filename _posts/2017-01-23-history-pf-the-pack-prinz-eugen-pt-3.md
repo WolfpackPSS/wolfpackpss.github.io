@@ -70,9 +70,12 @@ Prinz_Eugen nodded, finding his friends among the crowd and grinning widely.
 
 "I require neither your little head nod, nor your understanding or acceptance of my due process. If I am inconveniencing you, then you shouldn't have been caught and landed on my doorstep."
 
-Prinz_Eugen's smile faltered and he looked sideways at Xin.
+Prinz_Eugen's smile faltered and he looked sideways at Xin.  
+&nbsp; 
 
-"Good," Xin continued. "Now that I've wiped that smirk off your face, I will be clear. If you were shot dead in this courtroom, then it would still satisfy my only interest towards a quick and decisive conclusion of this trial."  
+"Good," Xin continued. "Now that I've wiped that smirk off your face, I will be clear. 
+
+"If you were shot dead in this courtroom, then it would still satisfy my only interest towards a quick and decisive conclusion of this trial."  
 
 Prinz_Eugen balked. 
 
