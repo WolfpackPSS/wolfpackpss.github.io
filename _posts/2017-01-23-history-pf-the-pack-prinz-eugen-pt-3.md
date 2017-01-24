@@ -23,7 +23,7 @@ Caxy leaned close. Close enough that the guard could smell the cheap booze on hi
 
 The guard stepped back. 
 
-Caxy fixed him with a grim smile, "Another time." Then resumed his procession into the courtroom.  
+Caxy fixed him with a grim smile, "Another time." Then resumed his entry into the courtroom.  
 &nbsp; 
 
 When Prinz_Eugen stepped through the doorway, the room exploded with noise. 
@@ -33,13 +33,13 @@ Conflicting howls of cheers and catcalls clashed painfully against each other. F
 
 "SILENCE!" Xin yelled. Slamming his fist down and hitting a pressure switch.
 
-The voice output of every hologram in the room was immediately cut. Dropping the court into an eerie pantomime of its self.
+The voice output of every hologram in the room was immediately cut, dropping the court into an eerie pantomime of its self.
 
 Captains stood on the seats of their chairs. Faces contorted with rage. Mouthing violent, angry screams. But no words coming out.
 
 The other half of the courtroom was weeping openly. Throwing flowers and laurels in the air, which bounced oddly against the barriers of their holograms to fall back at their feet.
 
-Personnel scrambled among the room's tiered seating to put out any projectors that had caught fire.  
+Personnel scrambled among the room's tiered seating to put out any fires that had started.  
 &nbsp; 
 
 Prinz_Eugen walked leisurely down the aisle.
@@ -50,16 +50,18 @@ He was flanked by a personal guard of four Elder Drivers. Two on either side. Th
 
 Prinz_Eugen stopped in the center of the courtroom and stepped up onto a raised platform.  
 
-He beamed smugly around the amphitheater. Drinking up the attention like a dry man sucking up water.  
+He beamed smugly around the amphitheater. Drinking up the attention showered on him like a dry man sucking up water.  
 &nbsp; 
 
-"Prinz_Eugen, I will instruct you how this trial will proceed," spoke Xin. "Under no condition will you speak. You have no rights here.
+"Prinz_Eugen, I will instruct you how this trial will proceed," spoke Xin. 
+
+"Under no condition will you speak. You have no rights here.
 
 "The prosecution will present its case and make formal charges. The defense counsel will then argue on your behalf. After which I will consult with my staff and make a ruling. Either to exonerate you. Or sentence you to punishment.
 
 "No evidence or witnesses will be accepted into this courtroom. You may assume that I have already been familiarized and bombarded with the ample and overwhelming accounts of conflicting evidence and testimonies. I will not have it hinder this trial from reaching a speedy verdict.
 
-"I will make no starting pretense towards guilt or innocence. My ruling will be based on the prosecution and defense, and the strength of their arguments. As well as any prior prejudices I may have leading up to this hearing."
+"I will make no starting pretense towards guilt or innocence. My judgment will be based on the prosecution and defense, and the strength of their arguments. As well as any prior prejudices I may have leading up to this hearing."
 
 Prinz_Eugen nodded, finding his friends among the crowd and grinning widely.  
 &nbsp; 
@@ -71,7 +73,6 @@ Prinz_Eugen nodded, finding his friends among the crowd and grinning widely.
 Prinz_Eugen's smile faltered and he looked sideways at Xin.
 
 "Good," Xin continued. "Now that I've wiped that smirk off your face, I will be clear. If you were shot dead in this courtroom, then it would still satisfy my only interest towards a quick and decisive conclusion of this trial."  
-&nbsp; 
 
 Prinz_Eugen balked. 
 
@@ -80,7 +81,7 @@ Xin glared hard at him.
 Respect. If Prinz_Eugen had no regard towards the seriousness of this tribunal, then there was no reason Xin should either.  
 &nbsp; 
 
-Once Prinz_Eugen was sufficiently cowed, Xin looked towards the first counsel.
+Once the accused was sufficiently cowed, Xin looked towards the first counsel.
 
 "Prosecution, you may begin."  
 &nbsp; 
