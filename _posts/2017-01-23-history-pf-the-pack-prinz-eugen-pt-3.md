@@ -16,14 +16,38 @@ A heavy battle-axe slung across his shoulder. Its vibro-force blades glowing a b
 
 "Halt!" One of the guards shouted, stopping him at the door, "Weapons are not permitted here."
 
-Caxy leaned close. Close enough that the guard could smell the cheap booze on his breath. A dangerous glint in Caxy's eye, "Did you want to try and take it from me?"  
+Caxy leaned close. Close enough that the guard could smell the aged whiskey on his breath. A dangerous glint in Caxy's eye, "Did you want to try and take it from me?"  
+
+"Let him in," Xin called across the room. "He is escorting the prisoner."  
 &nbsp; 
 
-"Let him in," Xin called across the room. "He is escorting the prisoner."
+Caxy was the one responsible for the apprehension of the accused. 
 
-The guard stepped back. 
+It was he who had caught and delivered them up to Xin, after another of their alliance had betrayed their activities.
 
-Caxy fixed him with a grim smile, "Another time." Then resumed his entry into the courtroom.  
+What he had found aboard their starship was unnatural. An incongrinuity in the flow of time and space. Like a three-dimensional kaleidoscope that was repeatedly overlapping.
+
+A fracture (incongrinuity) that the accused had willfully and recklessly sundered in the universe (torn in the fabric of reality / severed / exposed / fractured). For their own self-glorification.
+
+It was not something Caxy could attack directly.
+
+His mind refused to process it. He could only respond on a deep and visceral level. 
+
+Revulsion.  
+&nbsp; 
+
+Caxy looked back at the accused and scowled. 
+
+He unconsciously wiped his hand down his vest. As if he could wipe away the stain of what he had seen from soiling his mind.
+
+What he would give for another drink.
+
+Caxy would oversee the custody of the prisoner for the duration of the trial. As a representative of Wolfpack, as well as a greater collective interest: That justice be served and the space-time restored.  
+&nbsp; 
+
+The guard stepped back to allow them entry.
+
+Caxy loosened his grip on his axe and fixed the guard with a grim smile, “Another time.” Then resumed his entrance into the courtroom.  
 &nbsp; 
 
 When Prinz_Eugen stepped through the doorway, the room exploded with noise. 
