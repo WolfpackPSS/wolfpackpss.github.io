@@ -27,7 +27,7 @@ It was he who had caught and delivered them up to Xin, after another of the accu
 
 What Caxy had found aboard their starship was unnatural. An incongruity in the flow of time and space. Like a three-dimensional kaleidoscope that was repeatedly overlapping.
 
-A fracture that the accused had willfully and recklessly torn in the fabric of reality. For temporal superiority in battle. And their own self-glorification.
+A fracture that the accused had willfully and recklessly torn in the fabric of space. For temporal superiority in battle. And their own self-glorification.
 
 The incongruity was not something Caxy could attack directly.
 
