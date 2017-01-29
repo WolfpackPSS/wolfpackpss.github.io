@@ -27,7 +27,7 @@ It was he who had caught and delivered them up to Xin, after another of their al
 
 What he had found aboard their starship was unnatural. An incongrinuity in the flow of time and space. Like a three-dimensional kaleidoscope that was repeatedly overlapping.
 
-A fracture (incongrinuity) that the accused had willfully and recklessly sundered in the universe (torn in the fabric of reality / severed / exposed / fractured). For their own self-glorification.
+A fracture that the accused had willfully and recklessly sundered in the universe. For their own self-glorification.
 
 It was not something Caxy could attack directly.
 
@@ -42,7 +42,9 @@ He unconsciously wiped his hand down his vest. As if he could wipe away the stai
 
 What he would give for another drink.
 
-Caxy would oversee the custody of the prisoner for the duration of the trial. As a representative of Wolfpack, as well as a greater collective interest: That justice be served and the space-time restored.  
+Caxy would oversee the custody of the prisoner for the duration of the trial. As a representative of Wolfpack, as well as a greater collective interest: 
+
+That justice be served and the space-time restored.  
 &nbsp; 
 
 The guard stepped back to allow them entry.
