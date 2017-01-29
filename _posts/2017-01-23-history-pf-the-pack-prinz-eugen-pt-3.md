@@ -48,7 +48,7 @@ Justice would be served and the space-time restored.
 
 The guard stepped back to allow them entry.
 
-Caxy loosened his grip on his axe and fixed the guard with a grim smile, “Another time.” Then resumed his entrance into the courtroom.  
+Caxy loosened his grip on the axe and fixed the guard with a grim smile, “Another time.” Then resumed his entrance into the courtroom.  
 &nbsp; 
 
 When Prinz_Eugen stepped through the doorway, the room exploded with noise. 
