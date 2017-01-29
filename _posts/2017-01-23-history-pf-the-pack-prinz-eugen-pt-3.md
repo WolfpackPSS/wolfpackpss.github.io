@@ -36,7 +36,7 @@ His mind refused to process it. He could only respond on a deep and visceral lev
 Revulsion.  
 &nbsp; 
 
-Caxy looked back at the accused and scowled. He could not wipe away the stain of what he had seen from further soiling his conscience. 
+Caxy looked back at the accused and scowled. He could not wipe away the stain of what he had seen from soiling his conscience. 
 
 He felt dirty.
 
