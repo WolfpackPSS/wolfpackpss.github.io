@@ -36,15 +36,14 @@ His mind refused to process it. He could only respond on a deep and visceral lev
 Revulsion.  
 &nbsp; 
 
-Caxy looked back at the accused and scowled. 
+Caxy looked back at the accused and scowled. Unconsciously wiping his hand down his coat. As if he could wipe away the stain of what he had seen from soiling his mind.
 
-He unconsciously wiped his hand down his vest. As if he could wipe away the stain of what he had seen from soiling his mind.
+What he would give for another drink.  
+&nbsp; 
 
-What he would give for another drink.
+Caxy would oversee the custody of the prisoner for the duration of the trial. As a representative of Wolfpack, as well as a greater collective interest. 
 
-Caxy would oversee the custody of the prisoner for the duration of the trial. As a representative of Wolfpack, as well as a greater collective interest: 
-
-That justice be served and the space-time restored.  
+Justice would be served and the space-time restored.  
 &nbsp; 
 
 The guard stepped back to allow them entry.
