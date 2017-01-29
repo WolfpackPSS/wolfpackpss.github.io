@@ -25,7 +25,7 @@ Caxy was the one responsible for the apprehension of the accused.
 
 It was he who had caught and delivered them up to Xin, after another of their alliance had betrayed their activities.
 
-What he had found aboard their starship was unnatural. An incongrinuity in the flow of time and space. Like a three-dimensional kaleidoscope that was repeatedly overlapping.
+What he had found aboard their starship was unnatural. An incongruity in the flow of time and space. Like a three-dimensional kaleidoscope that was repeatedly overlapping.
 
 A fracture that the accused had willfully and recklessly sundered in the universe. For their own self-glorification.
 
