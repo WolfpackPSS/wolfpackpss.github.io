@@ -27,16 +27,16 @@ It was he who had caught and delivered them up to Xin, after another of the accu
 
 What Caxy had found aboard their starship was unnatural. An incongruity in the flow of time and space. Like a three-dimensional kaleidoscope that was repeatedly overlapping.
 
-A fracture that the accused had willfully and recklessly sundered in the universe. For temporal superiority in battle. And their own self-glorification.
+A fracture that the accused had willfully and recklessly torn in the fabric of reality. For temporal superiority in battle. And their own self-glorification.
 
-It was not something Caxy could attack directly.
+The incongruity was not something Caxy could attack directly.
 
 His mind refused to process it. He could only respond on a deep and visceral level. 
 
 Revulsion.  
 &nbsp; 
 
-Caxy looked back at the accused and scowled. Unconsciously wiping his hand down his coat. As if he could wipe away the memory of what he had seen from further soiling his mind.
+Caxy looked back at the accused and scowled. Unconsciously wiping off his hand on his coat. As if he could wipe away the memory from further soiling his mind.
 
 What he would give for another drink.  
 &nbsp; 
