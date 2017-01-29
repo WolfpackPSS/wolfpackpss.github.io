@@ -36,7 +36,7 @@ His mind refused to process it. He could only respond on a deep and visceral lev
 Revulsion.  
 &nbsp; 
 
-Caxy looked back at the accused and scowled. Unconsciously wiping his hand down his coat. As if he could wipe away the stain of what he had seen from soiling his mind.
+Caxy looked back at the accused and scowled. Unconsciously wiping his hand down his coat. As if he could wipe away the memory of what he had seen from further soiling his mind.
 
 What he would give for another drink.  
 &nbsp; 
